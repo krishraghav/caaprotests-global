@@ -1,5 +1,5 @@
 # Ways to Support the #CABProtests from Afar
-This is a continually updated document providing context, resources, reading lists and suggestions for how to engage with, understand ans support the #CABProtests in India from afar. 
+This is a continually updated document providing context, resources, reading lists and suggestions for how to engage with, understand ans support the #CABProtests in India from afar. If you would like to add to the list, please get in touch with Krish or Hamsini. 
 
 Last updated 17 December 2019. Maintained by anonymous contributors. 
 
@@ -7,11 +7,12 @@ Last updated 17 December 2019. Maintained by anonymous contributors.
 
 Reading links and best op-eds / articles / twitter threads here
 Explainers:
-[Citizenship Amendment Act Explained](https://indianexpress.com/article/explained/explained-how-to-be-a-citizen-of-india-earlier-now-6165960/) - Indian Express
-[How exactly does India's Citizenship Amendment Bill discriminate against Muslims?](https://scroll.in/article/944852/explainer-how-exactly-does-india-s-citizenship-amendment-bill-discriminate-against-muslims_) - Scroll.in 
-[‘Undeclared emergency’ in Jamia Millia: Students beaten up, teargassed by Delhi police](https://www.newslaundry.com/2019/12/15/undeclared-emergency-in-jamia-millia-students-beaten-up-teargassed-by-delhi-police) - NewsLaundry 
-[Jamia Students and Eyewitnesses Recount the Horrors of Police Violence](https://thewire.in/rights/watch-jamia-students-and-eyewitnesses-recount-the-horrors-of-police-violence)
-[Here’s why people are protesting India’s citizenship bill](https://globalnews.ca/news/6301241/india-protests-citizenship-bill-explainer/) - Global News.
+- [Citizenship Amendment Act Explained](https://indianexpress.com/article/explained/explained-how-to-be-a-citizen-of-india-earlier-now-6165960/) - Indian Express
+- [How exactly does India's Citizenship Amendment Bill discriminate against Muslims?](https://scroll.in/article/944852/explainer-how-exactly-does-india-s-citizenship-amendment-bill-discriminate-against-muslims_) - Scroll.in 
+- [‘Undeclared emergency’ in Jamia Millia: Students beaten up, teargassed by Delhi police](https://www.newslaundry.com/2019/12/15/undeclared-emergency-in-jamia-millia-students-beaten-up-teargassed-by-delhi-police) - NewsLaundry 
+[Twitter Thread with Photos of Jamia Millia by Neyaz Farooquee](https://twitter.com/nafsmanzer/status/1206494192488181760) *Trigger Warning: Violence*
+- [Jamia Students and Eyewitnesses Recount the Horrors of Police Violence](https://thewire.in/rights/watch-jamia-students-and-eyewitnesses-recount-the-horrors-of-police-violence)
+- [Here’s why people are protesting India’s citizenship bill](https://globalnews.ca/news/6301241/india-protests-citizenship-bill-explainer/) - Global News.
 
 
 
@@ -26,22 +27,33 @@ ZIne makers: contribute to Hong Kong-based ZIne Coop's [open call](https://www.i
 
 Ways to contribute - donations, marches, solidarity.
 
-##United Kingdom
-London - [Protest on 18 December at 17;00 outside Indian High Commission](https://www.facebook.com/events/2615341235186966/permalink/2615422625178827/) - organised by South Asia Solidarity Group and SOAS India Society
-Cambridge University - [Protest on 19 December at at 12 PM- 1 PM opposite the Kings Chapel on Kings Parade, Cambridge](https://www.facebook.com/events/2615341235186966/)  
-Oxford University - [Solidarity Letter by Students](https://twitter.com/h_tejas/status/1206855838608039936) DM or get in touch with Tejas Harad to sign. 
-[University and College Union](https://www.ucu.org.uk/article/10504/UCU-statement-on-response-to-student-protests-in-India) - Statement on response to student protests in India
+- If you can help make creatives to protest against the CAA, please sign up on [this resource list](https://docs.google.com/spreadsheets/d/1PFclLDIp8jfjRsrDrtln9YZmCHZzvJEpds5D-Z4ATa4/edit#gid=1995505772) curated by Siddhant Talwar
+
+## United Kingdom
+- London -[Protest on 18 December at 17;00 outside Indian High Commission](https://www.facebook.com/events/2615341235186966/permalink/2615422625178827/) - organised by South Asia Solidarity Group and SOAS India Society
+- Cambridge University - [Protest on 19 December at 12:00- 13:00 opposite the Kings Chapel on Kings Parade, Cambridge](https://www.facebook.com/events/2615341235186966/)  
+- Oxford University - [Solidarity Letter by Students](https://twitter.com/h_tejas/status/1206855838608039936) DM or get in touch with Tejas Harad to sign. 
+- [University and College Union](https://www.ucu.org.uk/article/10504/UCU-statement-on-response-to-student-protests-in-India) - Statement on response to student protests in India
 
 
+## United States
+
+- Harvard - [Solidarity Letter](https://docs.google.com/document/d/1RA6I0MAPZgD57aMvwL_JXKIGRpq8yIMjTtaRWF7QVF0/edit?fbclid=IwAR2BlJiiKP_SCJKcAMJFXWF2QuEaPYKVqpjf9hlaKo4Ehs66py461vTMdU8) - signed by students and organisations including Harvard US-India Initiative (HUII, Harvard South Asian Association Executive Board, Harvard College Pakistani Students Association, Harvard Cricket Club and Harvard Students for Bernie. Click on the link to sign. 
+
+## Germany
+- Berlin -[Protest March on 21 December from Brandenburg Gate to the Indian Embassy between 11:00- 17:00](https://twitter.com/UroosaAlam1/status/1206936410869112833) 
+
+## Canada
+Queen's University, Kingston Ontario 
+
+## Netherlands
+
+Leiden 
 
 
-##United States
+## Donate
 
-Harvard - [Solidarity Letter](https://docs.google.com/document/d/1RA6I0MAPZgD57aMvwL_JXKIGRpq8yIMjTtaRWF7QVF0/edit?fbclid=IwAR2BlJiiKP_SCJKcAMJFXWF2QuEaPYKVqpjf9hlaKo4Ehs66py461vTMdU8) - signed by students and organisations including Harvard US-India Initiative (HUII, Harvard South Asian Association Executive Board, Harvard College Pakistani Students Association, Harvard Cricket Club and Harvard Students for Bernie. Click on the link to sign. 
-
-
-
-[AltNews](https://www.altnews.in/donate/) - AltNews fact checks information and plays an important role, particularly in wake of the all the misinformation or fake news that is being shared on social media. 
+- [AltNews](https://www.altnews.in/donate/) - AltNews fact checks information and plays an important role, particularly in wake of the all the misinformation or fake news that is being shared on social media. 
 
 ## 🤳🏼 Spread the word on social media
 
