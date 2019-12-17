@@ -12,7 +12,7 @@ Explainers.
 
 The voices and insitutions to follow, boost and amplify. Where to get quality updates. Who to talk to for questions. 
 
-ZIne makers: contribute to Hong Kong-based ZIne Coop's [open call](https://www.instagram.com/p/B6GWjbEgh50/?igshid=e8g6xnj19jvu) for zines and art about protest movements.  
+ZIne makers: contribute to Hong Kong-based ZIne Coop's [open call](https://www.instagram.com/p/B6GWjbEgh50/?igshid=e8g6xnj19jvu) for zines and art about protest movements.   
 
 # 🙌 Support
 
