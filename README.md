@@ -16,3 +16,9 @@ The voices and insitutions to follow, boost and amplify. Where to get quality up
 
 Ways to contribute - donations, marches, solidarity. 
 
+-----
+
+This resource is inspired by the 'Beyond Lennon Walls' project. 
+It is licensed under a [Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License](http://creativecommons.org/licenses/by-nc-sa/4.0/).
+
+We welcome suggestions, contributors and translation volunteers - [get in touch](mailto:contact@krishcat.com), or make a GitHub pull request to this project! 
