@@ -6,17 +6,52 @@ Last updated 17 December 2019. Maintained by anonymous contributors.
 # 📚 Understand 
 
 Reading links and best op-eds / articles / twitter threads here
-Explainers. 
+Explainers:
+[Citizenship Amendment Act Explained](https://indianexpress.com/article/explained/explained-how-to-be-a-citizen-of-india-earlier-now-6165960/) - Indian Express
+[How exactly does India's Citizenship Amendment Bill discriminate against Muslims?](https://scroll.in/article/944852/explainer-how-exactly-does-india-s-citizenship-amendment-bill-discriminate-against-muslims_) - Scroll.in 
+[‘Undeclared emergency’ in Jamia Millia: Students beaten up, teargassed by Delhi police](https://www.newslaundry.com/2019/12/15/undeclared-emergency-in-jamia-millia-students-beaten-up-teargassed-by-delhi-police) - NewsLaundry 
+[Jamia Students and Eyewitnesses Recount the Horrors of Police Violence](https://thewire.in/rights/watch-jamia-students-and-eyewitnesses-recount-the-horrors-of-police-violence)
+[Here’s why people are protesting India’s citizenship bill](https://globalnews.ca/news/6301241/india-protests-citizenship-bill-explainer/) - Global News.
+
+
 
 # 📣 Amplify
 
-The voices and insitutions to follow, boost and amplify. Where to get quality updates. Who to talk to for questions. 
+The voices and insitutions to follow, boost and amplify. Where to get quality updates. Who to talk to for questions.
+
 
 ZIne makers: contribute to Hong Kong-based ZIne Coop's [open call](https://www.instagram.com/p/B6GWjbEgh50/?igshid=e8g6xnj19jvu) for zines and art about protest movements.   
 
 # 🙌 Support
 
-Ways to contribute - donations, marches, solidarity. 
+Ways to contribute - donations, marches, solidarity.
+
+##United Kingdom
+London - [Protest on 18 December at 17;00 outside Indian High Commission](https://www.facebook.com/events/2615341235186966/permalink/2615422625178827/) - organised by South Asia Solidarity Group and SOAS India Society
+Cambridge University - [Protest on 19 December at at 12 PM- 1 PM opposite the Kings Chapel on Kings Parade, Cambridge](https://www.facebook.com/events/2615341235186966/)  
+Oxford University - [Solidarity Letter by Students](https://twitter.com/h_tejas/status/1206855838608039936) DM or get in touch with Tejas Harad to sign. 
+[University and College Union](https://www.ucu.org.uk/article/10504/UCU-statement-on-response-to-student-protests-in-India) - Statement on response to student protests in India
+
+
+
+
+##United States
+
+Harvard - [Solidarity Letter](https://docs.google.com/document/d/1RA6I0MAPZgD57aMvwL_JXKIGRpq8yIMjTtaRWF7QVF0/edit?fbclid=IwAR2BlJiiKP_SCJKcAMJFXWF2QuEaPYKVqpjf9hlaKo4Ehs66py461vTMdU8) - signed by students and organisations including Harvard US-India Initiative (HUII, Harvard South Asian Association Executive Board, Harvard College Pakistani Students Association, Harvard Cricket Club and Harvard Students for Bernie. Click on the link to sign. 
+
+
+
+[AltNews](https://www.altnews.in/donate/) - AltNews fact checks information and plays an important role, particularly in wake of the all the misinformation or fake news that is being shared on social media. 
+
+## 🤳🏼 Spread the word on social media
+
+Some tips on spreading the word on social media:
+
+- Don't post unverified information.
+- Post trigger warnings before revealing images of blood and violence.
+- Think about your audience: Do your friends really want to read seven heavily-captioned posts, or do they prefer a single post summary?
+- Engage carefully with friends & family: Sometimes it's best to agree to disagree and move on for now.
+- Engage carefully (or not at all) with the trolls: Do you really need to win that argument on the internet with someone you don't know?
 
 -----
 
