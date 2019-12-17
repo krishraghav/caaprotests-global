@@ -1,24 +1,28 @@
 # Ways to Support the #CABProtests from Afar
-This is a continually updated document providing context, resources, reading lists and suggestions for how to engage with, understand ans support the #CABProtests in India from afar. If you would like to add to the list, please [get in touch here](mailto:contact@krishcat.com) [or here](mailto:hamsini.h94@gmail.com)
+This is a continually updated document providing context, resources, reading lists and suggestions for how to engage with, understand ans support the #CABProtests in India from afar. If you would like to add to the list, please [get in touch here](mailto:krish.raghav@gmail.com) [or here](mailto:hamsini.h94@gmail.com)
 
-Last updated 17 December 2019. Maintained by anonymous contributors. 
+Last updated 17 December 2019. Maintained by Hamsini Hariharan and Krish Raghav. 
 
 # 📚 Understand 
 
-Reading links and best op-eds / articles / twitter threads here
-Explainers:
+The current wave of protests in India are in response to the 'Citizenship Amendment Act' (CAA, previously the Citizenship Amendment Bill) and the 'National Register of Citizens' (NRC).
+
 # The Citizenship Amenment Act (CAA)
 - [Citizenship Amendment Act Explained](https://indianexpress.com/article/explained/explained-how-to-be-a-citizen-of-india-earlier-now-6165960/) - Indian Express
 - [How exactly does India's Citizenship Amendment Bill discriminate against Muslims?](https://scroll.in/article/944852/explainer-how-exactly-does-india-s-citizenship-amendment-bill-discriminate-against-muslims_) - Scroll.in 
-- [Here’s why people are protesting India’s citizenship bill](https://globalnews.ca/news/6301241/india-protests-citizenship-bill-explainer/) - Global News.
-# Violence in Assam, Kashmir and the North East 
+- [Here’s why people are protesting India’s citizenship bill](https://globalnews.ca/news/6301241/india-protests-citizenship-bill-explainer/) - Global News
+- [The Reality of the Citizenship Bill](https://www.youtube.com/watch?v=uS84V63IZUs&t=599s) - Dhruv Rathee on Youtube (Hindi, with English Captions)
+- [What Exactly does the Citizenship Bill Aim to Achieve?](https://www.newslaundry.com/2019/12/10/explainer-what-exactly-does-the-citizenship-bill-aim-to-achieve) - Newslaundry 
+
+# Police Brutality and Violence in Assam, Kashmir and the North East 
 - [J&K: Police Beat Up Journalists Covering Anti-Citizenship Act Protests in Srinagar](https://thewire.in/rights/citizenship-act-protest-srinagar) - The Wire
-# Violence Against Students at Jamia Millia and Aligarh Muslim University
+
+# Police Brutality and Violence Against Students at Jamia Millia and Aligarh Muslim University
 - [‘Undeclared emergency’ in Jamia Millia: Students beaten up, teargassed by Delhi police](https://www.newslaundry.com/2019/12/15/undeclared-emergency-in-jamia-millia-students-beaten-up-teargassed-by-delhi-police) - NewsLaundry 
 - [Supreme Court Refuses to Intervene on Jamia Violence, Asks Petitioners to Go to HC](https://thewire.in/rights/supreme-court-refuses-to-intervene-on-jamia-violence-asks-petitioners-to-go-to-hc) - The Wire
 - [Twitter Thread with Photos of Jamia Millia by Neyaz Farooquee](https://twitter.com/nafsmanzer/status/1206494192488181760) *Trigger Warning: Violence*
 - [Jamia Students and Eyewitnesses Recount the Horrors of Police Violence](https://thewire.in/rights/watch-jamia-students-and-eyewitnesses-recount-the-horrors-of-police-violence)
-
+- [An Eyewitness Account of Police Violence at Aligarh Muslim University](https://newslaundry.com/2019/12/16/stop-slapping-them-theyll-die-an-eyewitness-account-of-police-crackdown-on-amu-protest-against-citizenship-law) *Trigger Warning: Violence*
 
 # 📣 Amplify
 
