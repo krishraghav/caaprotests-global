@@ -11,7 +11,7 @@ The current wave of protests in India are in response to the 'Citizenship Amendm
 - [Citizenship Amendment Act Explained](https://indianexpress.com/article/explained/explained-how-to-be-a-citizen-of-india-earlier-now-6165960/) - Indian Express
 - [How exactly does India's Citizenship Amendment Bill discriminate against Muslims?](https://scroll.in/article/944852/explainer-how-exactly-does-india-s-citizenship-amendment-bill-discriminate-against-muslims_) - Scroll.in 
 - [Here’s why people are protesting India’s citizenship bill](https://globalnews.ca/news/6301241/india-protests-citizenship-bill-explainer/) - Global News
-- [The Reality of the Citizenship Bill](https://www.youtube.com/watch?v=uS84V63IZUs&t=599s) - Dhruv Rathee on Youtube (Hindi, with English Captions)
+- VIDEO: [The Reality of the Citizenship Bill](https://www.youtube.com/watch?v=uS84V63IZUs&t=599s) - Dhruv Rathee on Youtube (Hindi, with English Captions)
 - [What Exactly does the Citizenship Bill Aim to Achieve?](https://www.newslaundry.com/2019/12/10/explainer-what-exactly-does-the-citizenship-bill-aim-to-achieve) - Newslaundry 
 
 # Police Brutality and Violence in Assam, Kashmir and the North East 
@@ -26,9 +26,9 @@ The current wave of protests in India are in response to the 'Citizenship Amendm
 
 # 📣 Amplify
 
-The voices and insitutions to follow, boost and amplify. Where to get quality updates. Who to talk to for questions.
-- [South Asia Solidarity](https://twitter.com/SAsiaSolidarity) - Based in Britain 
+A non-exhaustive list of voices and insitutions to help amplify word of the protests.
 
+- [South Asia Solidarity](https://twitter.com/SAsiaSolidarity) - Based in Britain 
 
 ZIne makers: contribute to Hong Kong-based ZIne Coop's [open call](https://www.instagram.com/p/B6GWjbEgh50/?igshid=e8g6xnj19jvu) for zines and art about protest movements.   
 
@@ -60,11 +60,16 @@ Queen's University, Kingston Ontario
 Leiden 
 
 
-## Donate
+## Donate / Subscribe
 
 - [AltNews](https://www.altnews.in/donate/) - AltNews fact checks information and plays an important role, particularly in wake of the all the misinformation or fake news that is being shared on social media. 
 
-## 🤳🏼 Spread the word on social media
+- Buy or gift a subscription to independent media outlets in India, including [Scroll](https://scroll.in/subscribe), [Newslaundry](https://newslaundry.com/subscription) and [Caravan](https://caravanmagazine.in/subscribe)
+
+- If you know someone who will be on the front lines of the protests, share a VPN subscription with them. Recommended services include [12VPN](https://12vpn.net/) and [ExpressVPN](https://www.expressvpn.com/) 
+
+
+## 🤳🏼 Social Media 
 
 Some tips on spreading the word on social media:
 
@@ -76,7 +81,7 @@ Some tips on spreading the word on social media:
 
 -----
 
-This resource is inspired by the 'Beyond Lennon Walls' project. 
+This resource is inspired by the '(Beyond Lennon Walls)[https://github.com/hongkonggong/beyond-lennon-walls]' project. 
 It is licensed under a [Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License](http://creativecommons.org/licenses/by-nc-sa/4.0/).
 
 We welcome suggestions, contributors and translation volunteers - [get in touch](mailto:contact@krishcat.com), or make a GitHub pull request to this project! 
