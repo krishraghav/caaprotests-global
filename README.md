@@ -63,6 +63,8 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 - Harvard - [Solidarity Letter](https://docs.google.com/document/d/1RA6I0MAPZgD57aMvwL_JXKIGRpq8yIMjTtaRWF7QVF0/edit?fbclid=IwAR2BlJiiKP_SCJKcAMJFXWF2QuEaPYKVqpjf9hlaKo4Ehs66py461vTMdU8) - signed by students and organisations including Harvard US-India Initiative (HUII, Harvard South Asian Association Executive Board, Harvard College Pakistani Students Association, Harvard Cricket Club and Harvard Students for Bernie. Click on the link to sign. 
 
+- Yale - [Solidarity Letter](https://docs.google.com/document/d/1jecO8KvVwdhojS79sZU-ai22H-ChVa3VXaRQ3JL_FiY/edit?fbclid=IwAR0TC2eNTidIqIrxnkElKjfDw4XDiWFjqcFF3INc4OFGkDvrDyZczD4SqXc) Click on the link to sign. 
+
 - [Equality Labs](https://www.equalitylabs.org/) is building a ['call to action'](https://twitter.com/VDay/status/1207013427723456512) across the US. Their RSVP document is currently at capacity, but you can sign up for updates on [their website](https://www.equalitylabs.org/) 
 
 - DC: The South Asian Law Students Association in Georgetown is [mobilizing against the CAA/CAB](https://twitter.com/sees11sees/status/1206633608989032449), as are [SAALT](https://twitter.com/SAALTweets)
