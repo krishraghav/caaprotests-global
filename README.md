@@ -14,6 +14,10 @@ The current wave of protests in India are in response to the 'Citizenship Amendm
 - VIDEO: [The Reality of the Citizenship Bill](https://www.youtube.com/watch?v=uS84V63IZUs&t=599s) - Dhruv Rathee on Youtube (Hindi, with English Captions)
 - [What Exactly does the Citizenship Bill Aim to Achieve?](https://www.newslaundry.com/2019/12/10/explainer-what-exactly-does-the-citizenship-bill-aim-to-achieve) - Newslaundry 
 
+## The National Register of Citizens (NRC)
+
+- [Inside India’s Sham Trials That Could Strip Millions of Citizenship](https://news.vice.com/en_us/article/3k33qy/worse-than-a-death-sentence-inside-indias-sham-trials-that-could-strip-millions-of-citizenship) - Rohini Mohan, for Vice News
+
 ## Police Brutality and Violence in Assam, Kashmir and the North East 
 - [J&K: Police Beat Up Journalists Covering Anti-Citizenship Act Protests in Srinagar](https://thewire.in/rights/citizenship-act-protest-srinagar) - The Wire
 - [Assam: Protests Rage Despite Internet Shutdown](https://scroll.in/article/947013/with-assams-social-media-blocked-television-plays-a-key-role-in-mobilising-protestors) - Scroll
