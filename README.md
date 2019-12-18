@@ -5,7 +5,7 @@ Last updated 18 December 2019. Maintained by [Hamsini Hariharan](https://twitter
 
 # 📚 Understand 
 
-The current wave of protests in India are in response to the 'Citizenship Amendment Act' (CAA, previously the Citizenship Amendment Bill) and the 'National Register of Citizens' (NRC).
+The current wave of protests in India are in response to the 'Citizenship Amendment Act' (CAA, previously the Citizenship Amendment Bill) and the 'National Register of Citizens' (NRC). This comprehensive [RESOURCE LIST](https://docs.google.com/document/u/0/d/1sXNPwNZJpqf5dkoisyp4Fu1xqA5q0ocP0rx4xyB6Ub4/mobilebasic) is a good place to start. 
 
 ## The Citizenship Amendment Act (CAA)
 - [Citizenship Amendment Act Explained](https://indianexpress.com/article/explained/explained-how-to-be-a-citizen-of-india-earlier-now-6165960/) - Indian Express
