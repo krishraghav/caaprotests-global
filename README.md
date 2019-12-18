@@ -31,7 +31,7 @@ The current wave of protests in India are in response to the 'Citizenship Amendm
 
 # 📣 Amplify
 
-A non-exhaustive list of voices and insitutions to help amplify word of the protests.
+A non-exhaustive list of voices and institutions to help amplify word of the protests.
 
 - [South Asia Solidarity](https://twitter.com/SAsiaSolidarity) - Based in Britain 
 
