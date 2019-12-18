@@ -56,6 +56,8 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 
 ## United States
+- Washington DC (Protest on 18 December at 9:30 at the Mahatma Gandhi Statue) - via instagram
+- New York City (Protest on 18 December at 17:00 outside Indian Consulate, 3 East 64th St ) - via twitter 
 
 - Harvard - [Solidarity Letter](https://docs.google.com/document/d/1RA6I0MAPZgD57aMvwL_JXKIGRpq8yIMjTtaRWF7QVF0/edit?fbclid=IwAR2BlJiiKP_SCJKcAMJFXWF2QuEaPYKVqpjf9hlaKo4Ehs66py461vTMdU8) - signed by students and organisations including Harvard US-India Initiative (HUII, Harvard South Asian Association Executive Board, Harvard College Pakistani Students Association, Harvard Cricket Club and Harvard Students for Bernie. Click on the link to sign. 
 
@@ -67,9 +69,11 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Berlin -[Protest March on 21 December from Brandenburg Gate to the Indian Embassy between 11:00- 17:00](https://twitter.com/UroosaAlam1/status/1206936410869112833) 
 
 ## Canada
-Queen's University, Kingston Ontario - details unknown
+- Toronto [Protest on December 20th, between 12:00- 14:00 at the Consulate General of India, 265 Bloor Street East, Toronto] via instagram
+- Queen's University, Kingston Ontario - details unknown
 
 ## Netherlands
+- The Hague [Protest on December 20th, at 11:00 at the Indian Embassy]
 
 Leiden - details unknown
 
