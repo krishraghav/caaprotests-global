@@ -70,10 +70,6 @@ Leiden - details unknown
 
 - If you know someone who will be on the front lines of the protests, share a VPN subscription with them. Recommended services include [12VPN](https://12vpn.net/) and [ExpressVPN](https://www.expressvpn.com/) 
 
-- 
-
-
-
 ## 🤳🏼 Social Media 
 
 Some tips on spreading the word on social media:
@@ -87,7 +83,7 @@ Some tips on spreading the word on social media:
 
 -----
 
-This resource is inspired by the '(Beyond Lennon Walls)[https://github.com/hongkonggong/beyond-lennon-walls]' project. 
+This resource is inspired by the (Beyond Lennon Walls)[https://github.com/hongkonggong/beyond-lennon-walls] project. 
 It is licensed under a [Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License](http://creativecommons.org/licenses/by-nc-sa/4.0/).
 
 We welcome suggestions, contributors and translation volunteers - [get in touch](mailto:hamsini.h94@gmail.com), or make a GitHub pull request to this project! 
