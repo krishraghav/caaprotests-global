@@ -64,7 +64,7 @@ Queen's University, Kingston Ontario - details unknown
 Leiden - details unknown
 
 
-## 💰 Donate / Subscribe
+# 💰 Donate / Subscribe
 
 - [AltNews](https://www.altnews.in/donate/) - AltNews fact checks information and plays an important role, particularly in wake of the all the misinformation or fake news that is being shared on social media. 
 
@@ -72,7 +72,7 @@ Leiden - details unknown
 
 - If you know someone who will be on the front lines of the protests, share a VPN subscription with them. Recommended services include [12VPN](https://12vpn.net/) and [ExpressVPN](https://www.expressvpn.com/) 
 
-## 🤳🏼 Social Media 
+# 🤳🏼 Social Media 
 
 Some tips on spreading the word on social media:
 
