@@ -37,6 +37,8 @@ A non-exhaustive list of voices and institutions to help amplify word of the pro
 
 - Zine Makers and Artists: Contribute to Hong Kong-based Zine Coop's [OPEN CALL](https://www.instagram.com/p/B6GWjbEgh50/?igshid=e8g6xnj19jvu) for zines and art about protest movements. 
 
+- Creatives Against #CAA: Help spread the word with or contribute to some [fantastic artwork hosted at the Kadak Collective](http://creativesagainstcaa.kadakcollective.com/) (all posters are released under a Creative Commons license).
+
 - Help TRANSLATE this document or key primers to the situation, and [get in touch](mailto:hamsini.h94@gmail.com) so we can link to it here!  
 
 
