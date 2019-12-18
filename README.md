@@ -1,7 +1,7 @@
 # Ways to Support the #CABProtests from Afar
 This is a continually updated document providing context, resources, reading lists and suggestions for how to engage with, understand ans support the #CABProtests in India from afar. If you would like to add to the list, please [get in touch here](mailto:krish.raghav@gmail.com) [or here](mailto:hamsini.h94@gmail.com)
 
-Last updated 17 December 2019. Maintained by Hamsini Hariharan and Krish Raghav. 
+Last updated 18 December 2019. Maintained by Hamsini Hariharan and Krish Raghav. 
 
 # 📚 Understand 
 
@@ -16,6 +16,7 @@ The current wave of protests in India are in response to the 'Citizenship Amendm
 
 # Police Brutality and Violence in Assam, Kashmir and the North East 
 - [J&K: Police Beat Up Journalists Covering Anti-Citizenship Act Protests in Srinagar](https://thewire.in/rights/citizenship-act-protest-srinagar) - The Wire
+- [Assam: Protests Rage Despite Internet Shutdown](https://scroll.in/article/947013/with-assams-social-media-blocked-television-plays-a-key-role-in-mobilising-protestors) - Scroll
 
 # Police Brutality and Violence Against Students at Jamia Millia and Aligarh Muslim University
 - [‘Undeclared emergency’ in Jamia Millia: Students beaten up, teargassed by Delhi police](https://www.newslaundry.com/2019/12/15/undeclared-emergency-in-jamia-millia-students-beaten-up-teargassed-by-delhi-police) - NewsLaundry 
@@ -30,11 +31,12 @@ A non-exhaustive list of voices and insitutions to help amplify word of the prot
 
 - [South Asia Solidarity](https://twitter.com/SAsiaSolidarity) - Based in Britain 
 
-ZIne makers: contribute to Hong Kong-based ZIne Coop's [open call](https://www.instagram.com/p/B6GWjbEgh50/?igshid=e8g6xnj19jvu) for zines and art about protest movements.   
+- Zine Makers and Artists: Contribute to Hong Kong-based Zine Coop's [OPEN CALL](https://www.instagram.com/p/B6GWjbEgh50/?igshid=e8g6xnj19jvu) for zines and art about protest movements. 
+
 
 # 🙌 Support
 
-Ways to contribute - donations, marches, solidarity.
+Ways to contribute from afar - this section lists donation opportunites, global marches, and gestures of solidarity.
 
 - If you can help make creatives to protest against the CAA, please sign up on [this resource list](https://docs.google.com/spreadsheets/d/1PFclLDIp8jfjRsrDrtln9YZmCHZzvJEpds5D-Z4ATa4/edit#gid=1995505772) curated by Siddhant Talwar
 
@@ -53,11 +55,11 @@ Ways to contribute - donations, marches, solidarity.
 - Berlin -[Protest March on 21 December from Brandenburg Gate to the Indian Embassy between 11:00- 17:00](https://twitter.com/UroosaAlam1/status/1206936410869112833) 
 
 ## Canada
-Queen's University, Kingston Ontario 
+Queen's University, Kingston Ontario - details unknown
 
 ## Netherlands
 
-Leiden 
+Leiden - details unknown
 
 
 ## Donate / Subscribe
@@ -68,11 +70,15 @@ Leiden
 
 - If you know someone who will be on the front lines of the protests, share a VPN subscription with them. Recommended services include [12VPN](https://12vpn.net/) and [ExpressVPN](https://www.expressvpn.com/) 
 
+- 
+
+
 
 ## 🤳🏼 Social Media 
 
 Some tips on spreading the word on social media:
 
+- Take a moment to [update your digital security](https://github.com/hongkonggong/tldr-digital-security) 
 - Don't post unverified information.
 - Post trigger warnings before revealing images of blood and violence.
 - Think about your audience: Do your friends really want to read seven heavily-captioned posts, or do they prefer a single post summary?
@@ -84,4 +90,4 @@ Some tips on spreading the word on social media:
 This resource is inspired by the '(Beyond Lennon Walls)[https://github.com/hongkonggong/beyond-lennon-walls]' project. 
 It is licensed under a [Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License](http://creativecommons.org/licenses/by-nc-sa/4.0/).
 
-We welcome suggestions, contributors and translation volunteers - [get in touch](mailto:contact@krishcat.com), or make a GitHub pull request to this project! 
+We welcome suggestions, contributors and translation volunteers - [get in touch](mailto:hamsini.h94@gmail.com), or make a GitHub pull request to this project! 
