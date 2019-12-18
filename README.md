@@ -1,7 +1,7 @@
 # Ways to Support the #CAAProtests from Afar
-This is a continually updated document providing context, resources, reading lists and suggestions for how to engage with, understand ans support the #CAAProtests in India from afar. If you would like to add to the list, please [get in touch here](mailto:krish.raghav@gmail.com) [or here](mailto:hamsini.h94@gmail.com)
+This is a continually-updated document providing context, resources, reading lists and suggestions for how to engage with, understand and support the #CAAProtests in India from afar. If you would like to add to the list, please [get in touch here](mailto:krish.raghav@gmail.com) [or here](mailto:hamsini.h94@gmail.com)
 
-Last updated 18 December 2019. Maintained by Hamsini Hariharan and Krish Raghav. 
+Last updated 18 December 2019. Maintained by [Hamsini Hariharan](https://twitter.com/HamsiniH) and [Krish Raghav](https://twitter.com/krishraghav). 
 
 # 📚 Understand 
 
