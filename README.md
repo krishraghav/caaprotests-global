@@ -55,7 +55,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 - [Equality Labs](https://www.equalitylabs.org/) is building a ['call to action'](https://twitter.com/VDay/status/1207013427723456512) across the US. Their RSVP document is currently at capacity, but you can sign up for updates on [their website](https://www.equalitylabs.org/) 
 
-- DC: The South Asian Law Students Association in Georgetown is [mobilizing against the CAA/CAB](https://twitter.com/sees11sees/status/1206633608989032449). 
+- DC: The South Asian Law Students Association in Georgetown is [mobilizing against the CAA/CAB](https://twitter.com/sees11sees/status/1206633608989032449), as are [SAALT](https://twitter.com/SAALTweets)
 
 ## Germany
 - Berlin -[Protest March on 21 December from Brandenburg Gate to the Indian Embassy between 11:00- 17:00](https://twitter.com/UroosaAlam1/status/1206936410869112833) 
