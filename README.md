@@ -46,6 +46,8 @@ A non-exhaustive list of voices and institutions to help amplify word of the pro
 
 Ways to contribute from afar - this section lists donation opportunites, global marches, and gestures of solidarity.
 
+- [Contribute to help injured students of Jamia Millia Islamia](https://www.impactguru.com/fundraiser/help-jamia-millia-islamia?utm_source=whatsapp&utm_campaign=help-jamia-millia-islamia&utm_medium=share) organised by Radhika Sarpotdar. 
+
 - If you can help make creatives to protest against the CAA, please sign up on [this resource list](https://docs.google.com/spreadsheets/d/1PFclLDIp8jfjRsrDrtln9YZmCHZzvJEpds5D-Z4ATa4/edit#gid=1995505772) curated by Siddhant Talwar
 
 ## United Kingdom
