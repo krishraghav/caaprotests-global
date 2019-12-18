@@ -53,6 +53,8 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 - Harvard - [Solidarity Letter](https://docs.google.com/document/d/1RA6I0MAPZgD57aMvwL_JXKIGRpq8yIMjTtaRWF7QVF0/edit?fbclid=IwAR2BlJiiKP_SCJKcAMJFXWF2QuEaPYKVqpjf9hlaKo4Ehs66py461vTMdU8) - signed by students and organisations including Harvard US-India Initiative (HUII, Harvard South Asian Association Executive Board, Harvard College Pakistani Students Association, Harvard Cricket Club and Harvard Students for Bernie. Click on the link to sign. 
 
+- [Equality Labs](https://www.equalitylabs.org/) is building a ['call to action'](https://twitter.com/VDay/status/1207013427723456512) across the US. Their RSVP document is currently at capacity, but you can sign up for updates on [their website](https://www.equalitylabs.org/) 
+
 ## Germany
 - Berlin -[Protest March on 21 December from Brandenburg Gate to the Indian Embassy between 11:00- 17:00](https://twitter.com/UroosaAlam1/status/1206936410869112833) 
 
