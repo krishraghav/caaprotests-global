@@ -33,7 +33,7 @@ A non-exhaustive list of voices and insitutions to help amplify word of the prot
 
 - Zine Makers and Artists: Contribute to Hong Kong-based Zine Coop's [OPEN CALL](https://www.instagram.com/p/B6GWjbEgh50/?igshid=e8g6xnj19jvu) for zines and art about protest movements. 
 
-- Help TRANSLATE this document or key primers to the sitation, and [get in touch](mailto:hamsini.h94@gmail.com) so we can link to it here!  
+- Help TRANSLATE this document or key primers to the situation, and [get in touch](mailto:hamsini.h94@gmail.com) so we can link to it here!  
 
 
 # 🙌 Support
