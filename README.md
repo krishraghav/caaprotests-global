@@ -75,6 +75,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 ## Netherlands
 - The Hague [Protest on December 20th, at 11:00 at the Indian Embassy](https://www.facebook.com/events/589457835186168/)
+- Groningen [Protest on December 21th, at 10:00 at the Academic Building, RUG](https://www.facebook.com/events/s/india-against-caa/553204332196511/)
 
 ## New Zealand
 - Auckland [Protest March on 21 December at Aotea Square at 12:00](https://twitter.com/drsapna/status/1207229471666819073)
