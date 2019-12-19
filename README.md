@@ -95,6 +95,8 @@ Leiden - details unknown
 
 - [AltNews](https://www.altnews.in/donate/) - AltNews fact checks information and plays an important role, particularly in wake of the all the misinformation or fake news that is being shared on social media. 
 
+- Donate to advocacy against draconian INTERNET SHUTDOWNS by supporting the [Internet Freedom Foundation](https://twitter.com/internetfreedom) and [The Software Freedom Law Centre - SFLC](https://sflc.in/donate).
+
 - Buy or gift a subscription to independent media outlets in India, including [Scroll](https://scroll.in/subscribe), [Newslaundry](https://newslaundry.com/subscription) and [Caravan](https://caravanmagazine.in/subscribe)
 
 - If you know someone who will be on the front lines of the protests, share a VPN subscription with them. Recommended services include [Tunnel Bear](https://www.tunnelbear.com/), [12VPN](https://12vpn.net/) and [ExpressVPN](https://www.expressvpn.com/) 
