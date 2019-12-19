@@ -74,7 +74,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Berlin -[Protest March on 21 December from Brandenburg Gate to the Indian Embassy between 11:00- 17:0](https://twitter.com/UroosaAlam1/status/1206936410869112833) 
 
 ## Netherlands
-- The Hague [Protest on December 20th, at 11:00 at the Indian Embassy]
+- The Hague [Protest on December 20th, at 11:00 at the Indian Embassy](https://www.facebook.com/events/589457835186168/)
 
 ## New Zealand
 - Auckland [Protest March on 21 December at Aotea Square at 12:00](https://twitter.com/drsapna/status/1207229471666819073)
