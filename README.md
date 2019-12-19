@@ -82,7 +82,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 ## United Kingdom
 - Brighton -[Solidarity Gathering by University of Sussex Students on 19 December at 13;00 ater Library Square,Sussex University](https://www.facebook.com/events/2526626104328601/) 
 - Cambridge- [Protest on December 19th, 12:00, Opposite Kings Chapel on Kings Parade]
-- <strike>- London -[Protest on 18 December at 17;00 outside Indian High Commission](https://www.facebook.com/events/2615341235186966/permalink/2615422625178827/) - organised by South Asia Solidarity Group and SOAS India Society <strike>
+- London -[Protest on 18 December at 17;00 outside Indian High Commission](https://www.facebook.com/events/2615341235186966/permalink/2615422625178827/) - organised by South Asia Solidarity Group and SOAS India Society
 - Cambridge University - [Protest on 19 December at 12:00- 13:00 opposite the Kings Chapel on Kings Parade, Cambridge](https://www.facebook.com/events/2615341235186966/)  
 - Oxford University - [Solidarity Letter by Students](https://twitter.com/h_tejas/status/1206855838608039936) DM or get in touch with Tejas Harad to sign. 
 
