@@ -41,7 +41,7 @@ A non-exhaustive list of voices and institutions to help amplify word of the pro
 
 - Creatives Against #CAA: Help spread the word with or contribute to some [fantastic artwork hosted at the Kadak Collective](http://creativesagainstcaa.kadakcollective.com/) (all posters are released under a Creative Commons license).
 
-- [Help spread the word about pro-bono lawyers who have stepped forward to offer legal assistance](https://twitter.com/sarahfarooqui20/status/1207559590164025344/photo/1) to those detained / arrested. Please verify information first-hand before using in case of an emergency. 
+- Help spread the word about pro-bono lawyers who have stepped forward to offer legal assistance: [List 1](https://twitter.com/sarahfarooqui20/status/1207559590164025344/photo/1) and [List 2](https://twitter.com/borges/status/1207581532228964352). Please verify information first-hand before using in case of an emergency. 
 
 - Help TRANSLATE this document or key primers to the situation, and [get in touch](mailto:hamsini.h94@gmail.com) so we can link to it here!  
 
