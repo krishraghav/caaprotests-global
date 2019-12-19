@@ -5,7 +5,7 @@ Last updated 19 December 2019. Maintained by [Hamsini Hariharan](https://twitter
 
 # 📚 Understand 
 
-The current wave of protests in India are in response to the 'Citizenship Amendment Act' (CAA, previously the Citizenship Amendment Bill) and the 'National Register of Citizens' (NRC). This comprehensive [RESOURCE LIST](https://docs.google.com/document/u/0/d/1sXNPwNZJpqf5dkoisyp4Fu1xqA5q0ocP0rx4xyB6Ub4/mobilebasic) is a good place to start. 
+The current wave of protests in India are in response to the 'Citizenship Amendment Act' (CAA, previously the Citizenship Amendment Bill) and the 'National Register of Citizens' (NRC). This comprehensive **[RESOURCE LIST](https://docs.google.com/document/u/0/d/1sXNPwNZJpqf5dkoisyp4Fu1xqA5q0ocP0rx4xyB6Ub4/mobilebasic)** is a good place to start. 
 
 ## The Citizenship Amendment Act (CAA)
 - [Citizenship Amendment Act Explained](https://indianexpress.com/article/explained/explained-how-to-be-a-citizen-of-india-earlier-now-6165960/) - Indian Express
@@ -37,11 +37,11 @@ A non-exhaustive list of voices and institutions to help amplify word of the pro
 
 - [South Asia Solidarity](https://twitter.com/SAsiaSolidarity) - Based in Britain 
 
-- Zine Makers and Artists: Contribute to Hong Kong-based Zine Coop's [OPEN CALL](https://www.instagram.com/p/B6GWjbEgh50/?igshid=e8g6xnj19jvu) for zines and art about protest movements. 
+- **Zine Makers and Artists**: Contribute to Hong Kong-based Zine Coop's [OPEN CALL](https://www.instagram.com/p/B6GWjbEgh50/?igshid=e8g6xnj19jvu) for zines and art about protest movements. 
 
 - Creatives Against #CAA: Help spread the word with or contribute to some [fantastic artwork hosted at the Kadak Collective](http://creativesagainstcaa.kadakcollective.com/) (all posters are released under a Creative Commons license).
 
-- Help spread the word about pro-bono lawyers who have stepped forward to offer legal assistance: [List 1](https://twitter.com/sarahfarooqui20/status/1207559590164025344/photo/1) and [List 2](https://twitter.com/borges/status/1207581532228964352). Please verify information first-hand before using in case of an emergency. 
+- Help spread the word about **pro-bono lawyers** who have stepped forward to offer legal assistance: [List 1](https://twitter.com/sarahfarooqui20/status/1207559590164025344/photo/1) and [List 2](https://twitter.com/borges/status/1207581532228964352). Please verify information first-hand before using in case of an emergency. 
 
 - Help TRANSLATE this document or key primers to the situation, and [get in touch](mailto:hamsini.h94@gmail.com) so we can link to it here!  
 
@@ -52,11 +52,11 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 - [Contribute to help injured students of Jamia Millia Islamia](https://www.impactguru.com/fundraiser/help-jamia-millia-islamia?utm_source=whatsapp&utm_campaign=help-jamia-millia-islamia&utm_medium=share) organised by Radhika Sarpotdar. 
 
-- INTERNET SHUTDOWNS are being deployed across the country as a means to deter protests. Donate to the [Internet Freedom Foundation](https://twitter.com/internetfreedom) which does vital research and advocacy work on digital rights in India. 
+- **INTERNET SHUTDOWNS** are being deployed across the country as a means to deter protests. Donate to the [Internet Freedom Foundation](https://twitter.com/internetfreedom) which does vital research and advocacy work on digital rights in India. 
 
 - [The Software Freedom Law Centre - SFLC](https://sflc.in/donate) is a [donor-supported](https://sflc.in/donate) is an important legal services organization that brings together lawyers, policy analysts, technologists, and students to protect digital freedom. 
 
-- If you can help make creatives to protest against the CAA, please sign up on [this resource list](https://docs.google.com/spreadsheets/d/1PFclLDIp8jfjRsrDrtln9YZmCHZzvJEpds5D-Z4ATa4/edit#gid=1995505772) curated by Siddhant Talwar
+- If you can **help make creatives** to protest against the CAA, please sign up on [this resource list](https://docs.google.com/spreadsheets/d/1PFclLDIp8jfjRsrDrtln9YZmCHZzvJEpds5D-Z4ATa4/edit#gid=1995505772) curated by Siddhant Talwar
 
 ## United Kingdom
 - Sussex -[Solidarity Gathering by University of Sussex Students on 19 December at 13;00 ater Library Square,Sussex University](https://www.facebook.com/events/2526626104328601/) 
@@ -97,7 +97,7 @@ Leiden - details unknown
 
 - Donate to advocacy against draconian INTERNET SHUTDOWNS by supporting the [Internet Freedom Foundation](https://twitter.com/internetfreedom) and [The Software Freedom Law Centre - SFLC](https://sflc.in/donate).
 
-- Buy or gift a subscription to independent media outlets in India, including [Scroll](https://scroll.in/subscribe), [Newslaundry](https://newslaundry.com/subscription) and [Caravan](https://caravanmagazine.in/subscribe)
+- Buy or gift a **subscription to independent media outlets** in India, including [Scroll](https://scroll.in/subscribe), [Newslaundry](https://newslaundry.com/subscription) and [Caravan](https://caravanmagazine.in/subscribe)
 
 - If you know someone who will be on the front lines of the protests, share a VPN subscription with them. Recommended services include [Tunnel Bear](https://www.tunnelbear.com/), [12VPN](https://12vpn.net/) and [ExpressVPN](https://www.expressvpn.com/) 
 
