@@ -52,6 +52,10 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 - [Contribute to help injured students of Jamia Millia Islamia](https://www.impactguru.com/fundraiser/help-jamia-millia-islamia?utm_source=whatsapp&utm_campaign=help-jamia-millia-islamia&utm_medium=share) organised by Radhika Sarpotdar. 
 
+- INTERNET SHUTDOWNS are being deployed across the country as a means to deter protests. Donate to the [Internet Freedom Foundation](https://twitter.com/internetfreedom) which does vital research and advocacy work on digital rights in India. 
+
+- [The Software Freedom Law Centre - SFLC](https://sflc.in/donate) is a [donor-supported](https://sflc.in/donate) is an important legal services organization that brings together lawyers, policy analysts, technologists, and students to protect digital freedom. 
+
 - If you can help make creatives to protest against the CAA, please sign up on [this resource list](https://docs.google.com/spreadsheets/d/1PFclLDIp8jfjRsrDrtln9YZmCHZzvJEpds5D-Z4ATa4/edit#gid=1995505772) curated by Siddhant Talwar
 
 ## United Kingdom
