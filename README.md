@@ -1,7 +1,7 @@
 # Ways to Support the #CAAProtests from Afar
 This is a continually-updated document providing context, resources, reading lists and suggestions for how to engage with, understand and support the #CAAProtests in India from afar. If you would like to add to the list, please [get in touch here](mailto:krish.raghav@gmail.com) [or here](mailto:hamsini.h94@gmail.com)
 
-Last updated 18 December 2019. Maintained by [Hamsini Hariharan](https://twitter.com/HamsiniH) and [Krish Raghav](https://twitter.com/krishraghav). 
+Last updated 19 December 2019. Maintained by [Hamsini Hariharan](https://twitter.com/HamsiniH) and [Krish Raghav](https://twitter.com/krishraghav). 
 
 # 📚 Understand 
 
@@ -33,11 +33,15 @@ The current wave of protests in India are in response to the 'Citizenship Amendm
 
 A non-exhaustive list of voices and institutions to help amplify word of the protests.
 
+- [A curated Google Folder with links to printable booklets, posters, reading material and petition templates](https://drive.google.com/drive/folders/1nO9OQoPJ6p--Url05beS14mB6yq_Sm0n). Start here if you want to spread the word where you are. 
+
 - [South Asia Solidarity](https://twitter.com/SAsiaSolidarity) - Based in Britain 
 
 - Zine Makers and Artists: Contribute to Hong Kong-based Zine Coop's [OPEN CALL](https://www.instagram.com/p/B6GWjbEgh50/?igshid=e8g6xnj19jvu) for zines and art about protest movements. 
 
 - Creatives Against #CAA: Help spread the word with or contribute to some [fantastic artwork hosted at the Kadak Collective](http://creativesagainstcaa.kadakcollective.com/) (all posters are released under a Creative Commons license).
+
+- [Help spread the word about pro-bono lawyers who have stepped forward to offer legal assistance](https://twitter.com/sarahfarooqui20/status/1207559590164025344/photo/1) to those detained / arrested. Please verify information first-hand before using in case of an emergency. 
 
 - Help TRANSLATE this document or key primers to the situation, and [get in touch](mailto:hamsini.h94@gmail.com) so we can link to it here!  
 
