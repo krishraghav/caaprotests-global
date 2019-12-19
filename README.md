@@ -58,6 +58,18 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 - If you can **help make creatives** to protest against the CAA, please sign up on [this resource list](https://docs.google.com/spreadsheets/d/1PFclLDIp8jfjRsrDrtln9YZmCHZzvJEpds5D-Z4ATa4/edit#gid=1995505772) curated by Siddhant Talwar
 
+## New Zealand
+- Auckland [Protest March on 21 December at Aotea Square at 12:00](https://twitter.com/drsapna/status/1207229471666819073)
+## Germany
+- Berlin -[Protest March on 21 December from Brandenburg Gate to the Indian Embassy between 11:00- 17:0](https://twitter.com/UroosaAlam1/status/1206936410869112833) 
+
+## Canada
+- Toronto [Protest on December 20th, between 12:00- 14:00 at the Consulate General of India, 265 Bloor Street East, Toronto] via instagram
+- Queen's University, Kingston Ontario - details unknown
+
+## Netherlands
+- The Hague [Protest on December 20th, at 11:00 at the Indian Embassy]
+
 ## United Kingdom
 - Sussex -[Solidarity Gathering by University of Sussex Students on 19 December at 13;00 ater Library Square,Sussex University](https://www.facebook.com/events/2526626104328601/) 
 - London -[Protest on 18 December at 17;00 outside Indian High Commission](https://www.facebook.com/events/2615341235186966/permalink/2615422625178827/) - organised by South Asia Solidarity Group and SOAS India Society
@@ -78,15 +90,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 - DC: The South Asian Law Students Association in Georgetown is [mobilizing against the CAA/CAB](https://twitter.com/sees11sees/status/1206633608989032449), as are [SAALT](https://twitter.com/SAALTweets)
 
-## Germany
-- Berlin -[Protest March on 21 December from Brandenburg Gate to the Indian Embassy between 11:00- 17:00](https://twitter.com/UroosaAlam1/status/1206936410869112833) 
 
-## Canada
-- Toronto [Protest on December 20th, between 12:00- 14:00 at the Consulate General of India, 265 Bloor Street East, Toronto] via instagram
-- Queen's University, Kingston Ontario - details unknown
-
-## Netherlands
-- The Hague [Protest on December 20th, at 11:00 at the Indian Embassy]
 
 Leiden - details unknown
 
