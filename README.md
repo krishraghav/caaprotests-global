@@ -58,6 +58,8 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 - If you can **help make creatives** to protest against the CAA, please sign up on [this resource list](https://docs.google.com/spreadsheets/d/1PFclLDIp8jfjRsrDrtln9YZmCHZzvJEpds5D-Z4ATa4/edit#gid=1995505772) curated by Siddhant Talwar
 
+- Irrespective of wherever you are, you cans sign this [letter of Solidarity addressed to the Supreme Court](https://docs.google.com/forms/d/e/1FAIpQLSfuiylEazTOWdghPUDQKx1FGV0V1SzvFx-02EdEHv-881jqGQ/viewform) 
+
 ## Australia 
 - Melbourne [Protest on December 22th, between 12:00- 14:00 at Fed Sq, Swanston& Flinders]
 
