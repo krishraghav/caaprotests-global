@@ -62,6 +62,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 ## Australia 
 - Melbourne [Protest on December 22th, between 13:00 at Fed Sq, Swanston& Flinders]
+- Sydney [Protest on 22 December at 15:00 at Hyde Park, Elizabeth Street](https://www.facebook.com/events/1083215635355143/)
 
 ## Canada
 - Vancouver [Protest on December 19th, 11:30, University of British Columbia Fountain]
@@ -105,7 +106,8 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - New York City (Protest on 18 December at 17:00 outside Indian Consulate, 3 East 64th St ) - via twitter 
 - Amherst (Protest on 19 December at 11:00, Old Chapel, University of Amherst)
 - Washington DC [Protest on 20 December at 18:00 at True Reformer Building](https://www.facebook.com/events/2415862348666237/)
-- Los Angeles [Protest on December 21th, 11:00, Grand Park (Opposite City Park)]
+- Houston [Protest on 20 December at 15:00 at 4300 Scotland Street](https://www.facebook.com/events/1547912832042368/)
+- Los Angeles [Protest on December 21th, 11:00, Grand Park (Opposite City Park)](https://www.facebook.com/events/2724241064305699/)
 - Freemont [Protest on December 21th, 11:00, Stevenson Boulevard, and Paseo Padre PKWY]
 - Denver [Protest on December 21th, 12:00, Capitol Hill]
 - Seattle [Protest on December 21th, 13:00, Victor Steinbruck Park, 2001 WAVE]
@@ -115,7 +117,12 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Madison [Protest on December 22nd at 17:00 at Madison Square, 800 Langdon Street ](https://www.facebook.com/events/820398375054847/)
 
 
-
+- University of Wisconsin-Madison - [Solidarity Letter](https://docs.google.com/forms/d/e/1FAIpQLSctUg3-jfVJwmse5viI5rinTc-6_QJvYjikWW1fdkpvEhyk-A/viewform?fbclid=IwAR3jzjqeIaCQxShDBMrwAdOLy3299Gmnj9J6dwp9ix4ljLmpy9fdtS9_t2k) - Click on the link to sign. 
+- Dartmouth College [Solidarity Letter](https://docs.google.com/document/d/1ozNniQ2yJOQW8VBgKz4-h8sRfF9ESvraJoa2RHb5qho/edit?fbclid=IwAR03tvUiAZlxQ9T1MfH1KwmMguhywYP99n_aUzZdGtvsEfOCd1i1WJLJT-4) Click on the link to sign. 
+- Duke University [Solidarity Letter](https://docs.google.com/document/d/1ReyiDRUjcPeATSLclgKv1p7NrTgLfDLW7mYVnmqQYvk/edit?fbclid=IwAR26z4oSFFLhjun_LSAhsLPpV2zlJxZqvNQEuY-rlObdH8B8elvhSO3Ao1w) Click on the link to sign. 
+- California and the University of Berkley -[Solidarity Letter](https://docs.google.com/forms/d/e/1FAIpQLScZuj-npu-nnu6BkcDwbkAXBNVnJDqUf5TqxY55wU8Lf43GTQ/viewform) - Click on the link to sign. 
+- Reed College - [Solidarity Letter](https://docs.google.com/document/d/1PzwxPzNfJhEVzxVF8RduGCfRl1_X7hxP2Gl5f1vkips/edit?fbclid=IwAR0wknRLj_Pk37RpD2nzI9n3HnpmQNKhlzE483MIuTwbn9yhPiEMRX9vZ3E)- Click on the link to sign. 
+- Brown - [](https://docs.google.com/document/d/17aqRVainP5sOLylukQUg98i195asisUtDB5ilxsSZ0A/edit?fbclid=IwAR1Oy4O4b9X6_F5WVBml0b-awF3WLe08r5260GomcwqNkLmGBys0fu0o0Nk) 
 - Harvard - [Solidarity Letter](https://docs.google.com/document/d/1RA6I0MAPZgD57aMvwL_JXKIGRpq8yIMjTtaRWF7QVF0/edit?fbclid=IwAR2BlJiiKP_SCJKcAMJFXWF2QuEaPYKVqpjf9hlaKo4Ehs66py461vTMdU8) - signed by students and organisations including Harvard US-India Initiative (HUII, Harvard South Asian Association Executive Board, Harvard College Pakistani Students Association, Harvard Cricket Club and Harvard Students for Bernie. Click on the link to sign. 
 
 - Yale - [Solidarity Letter](https://docs.google.com/document/d/1jecO8KvVwdhojS79sZU-ai22H-ChVa3VXaRQ3JL_FiY/edit?fbclid=IwAR0TC2eNTidIqIrxnkElKjfDw4XDiWFjqcFF3INc4OFGkDvrDyZczD4SqXc) Click on the link to sign. 
