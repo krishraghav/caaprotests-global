@@ -112,7 +112,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Denver [Protest on December 21th, 12:00, Capitol Hill]
 - Seattle [Protest on December 21th, 13:00, Victor Steinbruck Park, 2001 WAVE]
 - Seattle [Protest on December 21th, 19:00, E Pine Street & 10th]
-- San Francisco [Protest on December 21th, 10:00, Consul General India, 540 Arguello Boulevard]
+- San Francisco [Protest on December 21th, 10:00, Consul General India, 540 Arguello Boulevard](https://www.facebook.com/events/1916313871848718/)
 - Austin [Protest on December 22nd, 14:00, 1100 Congress Avenue]
 - Madison [Protest on December 22nd at 17:00 at Madison Square, 800 Langdon Street ](https://www.facebook.com/events/820398375054847/)
 
