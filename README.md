@@ -101,9 +101,10 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 
 ## United States
-- Washington DC (Protest on 18 December at 09:30 at the Mahatma Gandhi Statue, 21st &Q) - via instagram
+- Washington DC (Protest on 18 December at 09:30 at the Mahatma Gandhi Statue, 21st &Q) 
 - New York City (Protest on 18 December at 17:00 outside Indian Consulate, 3 East 64th St ) - via twitter 
 - Amherst (Protest on 19 December at 11:00, Old Chapel, University of Amherst)
+- Washington DC [Protest on 20 December at 18:00 at True Reformer Building](https://www.facebook.com/events/2415862348666237/)
 - Los Angeles [Protest on December 21th, 11:00, Grand Park (Opposite City Park)]
 - Freemont [Protest on December 21th, 11:00, Stevenson Boulevard, and Paseo Padre PKWY]
 - Denver [Protest on December 21th, 12:00, Capitol Hill]
@@ -112,6 +113,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - San Francisco [Protest on December 21th, 10:00, Consul General India, 540 Arguello Boulevard]
 - Austin [Protest on December 22nd, 14:00, 1100 Congress Avenue]
 - Madison [Protest on December 22nd at 17:00 at Madison Square, 800 Langdon Street ](https://www.facebook.com/events/820398375054847/)
+
 
 
 - Harvard - [Solidarity Letter](https://docs.google.com/document/d/1RA6I0MAPZgD57aMvwL_JXKIGRpq8yIMjTtaRWF7QVF0/edit?fbclid=IwAR2BlJiiKP_SCJKcAMJFXWF2QuEaPYKVqpjf9hlaKo4Ehs66py461vTMdU8) - signed by students and organisations including Harvard US-India Initiative (HUII, Harvard South Asian Association Executive Board, Harvard College Pakistani Students Association, Harvard Cricket Club and Harvard Students for Bernie. Click on the link to sign. 
