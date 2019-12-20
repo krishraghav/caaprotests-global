@@ -61,28 +61,39 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Irrespective of wherever you are, you cans sign this [letter of Solidarity addressed to the Supreme Court](https://docs.google.com/forms/d/e/1FAIpQLSfuiylEazTOWdghPUDQKx1FGV0V1SzvFx-02EdEHv-881jqGQ/viewform) 
 
 ## Australia 
-- Melbourne [Protest on December 22th, between 12:00- 14:00 at Fed Sq, Swanston& Flinders]
+- Melbourne [Protest on December 22th, between 13:00 at Fed Sq, Swanston& Flinders]
 
 ## Canada
 - Vancouver [Protest on December 19th, 11:30, University of British Columbia Fountain]
 - Toronto [Protest on December 20th, between 12:00- 14:00 at the Consulate General of India, 265 Bloor Street East, Toronto] via instagram
 - Montreal [Protest on December 20th, 15:00 at 853 Sherbrooke Street, Arts Building, McGill University]
-- Queen's University, Kingston Ontario - details unknown
+- Montreal [Protest on December 22th, 13:00 at Norman Bethune Street]
 
 ## Germany
-- Erfurt  [Protest March on 20 December at University of Erfurt Gate at 11:00]
-- Berlin -[Protest March on 21 December from Brandenburg Gate to the Indian Embassy between 11:00- 17:0](https://twitter.com/UroosaAlam1/status/1206936410869112833) 
+- Bonn [Protest on 20 December at 14:00 at Marketplatz]
+- Heidelburg [Protest on 20 December at 16:00 at C.A.T.S Library Yard]
+- Erfurt [Protest March on 20 December at University of Erfurt Gate at 11:00]
+- Berlin -[Protest March on 21 December at Brandenburg Tor at 11:00](https://twitter.com/UroosaAlam1/status/1206936410869112833) 
+- Gottingen [Protest on 21 December at 14:30 at Nabel Prinzesenstrasse]
+- Munich [Protest on 21 December at 15:00 Geschwister Scholl Plaza]
 
+## Japan 
+- Tokyo [Protest on December 22th, at 11:00 at University of Tokyo, Akamon, Hongo Campus]
 ## Netherlands
 - The Hague [Protest on December 20th, at 11:00 at the Indian Embassy]
+- Amsterdam [Protest on December 21th, at 15:00 at Dam Square]
+- Groningen [Protest on December 21th, at 10:00 at the University Academy Building]
 
 ## New Zealand
 - Auckland [Protest March on 21 December at Aotea Square at 12:00](https://twitter.com/drsapna/status/1207229471666819073)
 
+## Scotland 
+- Glasgow [Protest on December 21th, at 11:00 at Buchannan Street, Royal Concert Hall]
+
 ## United Kingdom
 - Brighton -[Solidarity Gathering by University of Sussex Students on 19 December at 13;00 ater Library Square,Sussex University](https://www.facebook.com/events/2526626104328601/) 
 - Cambridge- [Protest on December 19th, 12:00, Opposite Kings Chapel on Kings Parade]
-- London -[Protest on 18 December at 17;00 outside Indian High Commission](https://www.facebook.com/events/2615341235186966/permalink/2615422625178827/) - organised by South Asia Solidarity Group and SOAS India Society
+- London -[Protest on 21 December at 13;00 at the Parliament, Westminister]
 - Cambridge University - [Protest on 19 December at 12:00- 13:00 opposite the Kings Chapel on Kings Parade, Cambridge](https://www.facebook.com/events/2615341235186966/)  
 - Oxford University - [Solidarity Letter by Students](https://twitter.com/h_tejas/status/1206855838608039936) DM or get in touch with Tejas Harad to sign. 
 
@@ -93,7 +104,15 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Washington DC (Protest on 18 December at 09:30 at the Mahatma Gandhi Statue, 21st &Q) - via instagram
 - New York City (Protest on 18 December at 17:00 outside Indian Consulate, 3 East 64th St ) - via twitter 
 - Amherst (Protest on 19 December at 11:00, Old Chapel, University of Amherst)
-- Los Angeles [Protest on December 21th, 11:00, location TBD]
+- Los Angeles [Protest on December 21th, 11:00, Grand Park (Opposite City Park)]
+- Freemont [Protest on December 21th, 11:00, Stevenson Boulevard, and Paseo Padre PKWY]
+- Denver [Protest on December 21th, 12:00, Capitol Hill]
+- Seattle [Protest on December 21th, 13:00, Victor Steinbruck Park, 2001 WAVE]
+- Seattle [Protest on December 21th, 19:00, E Pine Street & 10th]
+- San Francisco [Protest on December 21th, 10:00, Consul General India, 540 Arguello Boulevard]
+- Austin [Protest on December 22nd, 14:00, 1100 Congress Avenue]
+- Madison [Protest on December 22nd at 17:00 at Madison Square, 800 Langdon Street ](https://www.facebook.com/events/820398375054847/)
+
 
 - Harvard - [Solidarity Letter](https://docs.google.com/document/d/1RA6I0MAPZgD57aMvwL_JXKIGRpq8yIMjTtaRWF7QVF0/edit?fbclid=IwAR2BlJiiKP_SCJKcAMJFXWF2QuEaPYKVqpjf9hlaKo4Ehs66py461vTMdU8) - signed by students and organisations including Harvard US-India Initiative (HUII, Harvard South Asian Association Executive Board, Harvard College Pakistani Students Association, Harvard Cricket Club and Harvard Students for Bernie. Click on the link to sign. 
 
