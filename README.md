@@ -62,7 +62,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 ## Australia 
 - Melbourne [Protest on December 22th, between 13:00 at Fed Sq, Swanston& Flinders]
-- Sydney [Protest on 22 December at 15:00 at Hyde Park, Elizabeth Street](https://www.facebook.com/events/1083215635355143/)
+- Sydney [Protest on 22 December at 15:00 at Hyde Park, Elizabeth Street](https://www.facebook.com/events/498827651032399/)
 
 ## Canada
 - Vancouver [Protest on December 19th, 11:30, University of British Columbia Fountain]
