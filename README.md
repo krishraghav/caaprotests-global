@@ -69,6 +69,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Toronto [Protest on December 20th, between 12:00- 14:00 at the Consulate General of India, 265 Bloor Street East, Toronto] via instagram
 - Montreal [Protest on December 20th, 15:00 at 853 Sherbrooke Street, Arts Building, McGill University]
 - Montreal [Protest on December 22th, 13:00 at Norman Bethune Street]
+- Calgary [Protest on December 23th, 12:00 in front of City Hall, Calgary]
 
 ## Germany
 - Bonn [Protest on 20 December at 14:00 at Marketplatz]
