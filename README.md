@@ -65,7 +65,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Sydney [Protest on 22 December at 15:00 at Hyde Park, Elizabeth Street](https://www.facebook.com/events/498827651032399/)
 
 ## Canada
-- Vancouver [Protest on December 19th, 11:30, University of British Columbia Fountain]
+- <strike>Vancouver [Protest on December 19th, 11:30, University of British Columbia Fountain]</strike>
 - Toronto [Protest on December 20th, between 12:00- 14:00 at the Consulate General of India, 265 Bloor Street East, Toronto] via instagram
 - Montreal [Protest on December 20th, 15:00 at 853 Sherbrooke Street, Arts Building, McGill University]
 - Montreal [Protest on December 22th, 13:00 at Norman Bethune Street]
@@ -92,8 +92,8 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Glasgow [Protest on December 21th, at 11:00 at Buchannan Street, Royal Concert Hall]
 
 ## United Kingdom
-- Brighton -[Solidarity Gathering by University of Sussex Students on 19 December at 13;00 ater Library Square,Sussex University](https://www.facebook.com/events/2526626104328601/) 
-- Cambridge- [Protest on December 19th, 12:00, Opposite Kings Chapel on Kings Parade]
+- <strike>Brighton -[Solidarity Gathering by University of Sussex Students on 19 December at 13;00 ater Library Square,Sussex University](https://www.facebook.com/events/2526626104328601/) </strike>
+- <strike>Cambridge- [Protest on December 19th, 12:00, Opposite Kings Chapel on Kings Parade</strike>]
 - London -[Protest on 21 December at 13;00 at the Parliament, Westminister]
 - Cambridge University - [Protest on 19 December at 12:00- 13:00 opposite the Kings Chapel on Kings Parade, Cambridge](https://www.facebook.com/events/2615341235186966/)  
 - Oxford University - [Solidarity Letter by Students](https://twitter.com/h_tejas/status/1206855838608039936) DM or get in touch with Tejas Harad to sign. 
@@ -102,9 +102,9 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 
 ## United States
-- Washington DC (Protest on 18 December at 09:30 at the Mahatma Gandhi Statue, 21st &Q) 
-- New York City (Protest on 18 December at 17:00 outside Indian Consulate, 3 East 64th St ) - via twitter 
-- Amherst (Protest on 19 December at 11:00, Old Chapel, University of Amherst)
+- <strike>Washington DC (Protest on 18 December at 09:30 at the Mahatma Gandhi Statue, 21st &Q) </strike>
+- <strike>New York City (Protest on 18 December at 17:00 outside Indian Consulate, 3 East 64th St ) - via twitter </strike>
+- <strike>Amherst (Protest on 19 December at 11:00, Old Chapel, University of Amherst)</strike>
 - Washington DC [Protest on 20 December at 18:00 at True Reformer Building](https://www.facebook.com/events/2415862348666237/)
 - Houston [Protest on 20 December at 15:00 at 4300 Scotland Street](https://www.facebook.com/events/1547912832042368/)
 - Los Angeles [Protest on December 21th, 11:00, Grand Park (Opposite City Park)](https://www.facebook.com/events/2724241064305699/)
