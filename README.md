@@ -110,7 +110,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Washington DC [Protest on 20 December at 18:00 at True Reformer Building](https://www.facebook.com/events/2415862348666237/)
 - Houston [Protest on 20 December at 15:00 at 4300 Scotland Street](https://www.facebook.com/events/1547912832042368/)
 - Los Angeles [Protest on December 21th, 11:00, Grand Park (Opposite City Park)](https://www.facebook.com/events/2724241064305699/)
-- Freemont [Protest on December 21th, 11:00, Stevenson Boulevard, and Paseo Padre PKWY]
+- Fremont(SF Bay Area) [Protest on December 21th, 11:00, Stevenson Boulevard, and Paseo Padre PKWY]
 - Denver [Protest on December 21th, 12:00, Capitol Hill]
 - Seattle [Protest on December 21th, 13:00, Victor Steinbruck Park, 2001 WAVE]
 - Seattle [Protest on December 21th, 19:00, E Pine Street & 10th]
