@@ -1,7 +1,7 @@
 # Ways to Support the #CAAProtests from Afar
 This is a continually-updated document providing context, resources, reading lists and suggestions for how to engage with, understand and support the #CAAProtests in India from afar. If you would like to add to the list, please [get in touch here](mailto:krish.raghav@gmail.com) [or here](mailto:hamsini.h94@gmail.com)
 
-Last updated 20 December 2019. Maintained by [Hamsini Hariharan](https://twitter.com/HamsiniH) and [Krish Raghav](https://twitter.com/krishraghav). 
+Last updated 21 December 2019. Maintained by [Hamsini Hariharan](https://twitter.com/HamsiniH) and [Krish Raghav](https://twitter.com/krishraghav). 
 
 # 📚 Understand 
 
@@ -32,6 +32,8 @@ The current wave of protests in India are in response to the 'Citizenship Amendm
 # 📣 Amplify
 
 A non-exhaustive list of voices and institutions to help amplify word of the protests.
+
+- [Hindutva 101: A guide for discussing Hindu nationalism with parents, relatives, freinds, colleagues_](https://www.sadhana.org/hindutva-101?fbclid=IwAR0vCeJBL5jkSdEFlZ7u0Bonk5uIb2z_MHefczSoq0JlneZ4Hm1kU6yuMqo) -- Directed to Hindu Americans but can be applicable across a Hindu diaspora. 
 
 - [A curated Google Folder with links to printable booklets, posters, reading material and petition templates](https://drive.google.com/drive/folders/1nO9OQoPJ6p--Url05beS14mB6yq_Sm0n). Start here if you want to spread the word where you are. 
 
@@ -69,7 +71,6 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Toronto [Protest on December 20th, between 12:00- 14:00 at the Consulate General of India, 265 Bloor Street East, Toronto] via instagram
 - Montreal [Protest on December 20th, 15:00 at 853 Sherbrooke Street, Arts Building, McGill University]
 - Montreal [Protest on December 22th, 13:00 at Norman Bethune Street]
-- Calgary [Protest on December 23th, 12:00 in front of City Hall, Calgary]
 
 ## Germany
 - Bonn [Protest on 20 December at 14:00 at Marketplatz]
@@ -78,9 +79,6 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Berlin -[Protest March on 21 December at Brandenburg Tor at 11:00](https://twitter.com/UroosaAlam1/status/1206936410869112833) 
 - Gottingen [Protest on 21 December at 14:30 at Nabel Prinzesenstrasse]
 - Munich [Protest on 21 December at 15:00 Geschwister Scholl Plaza]
-
-## Finalnd
-- Helsinki [Protest on 21 December at 11:00 at Rautatientori, Central Railway Station]
 
 ## Japan 
 - Tokyo [Protest on December 22th, at 11:00 at University of Tokyo, Akamon, Hongo Campus]
@@ -114,11 +112,9 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Los Angeles [Protest on December 21th, 11:00, Grand Park (Opposite City Park)](https://www.facebook.com/events/2724241064305699/)
 - Freemont [Protest on December 21th, 11:00, Stevenson Boulevard, and Paseo Padre PKWY]
 - Denver [Protest on December 21th, 12:00, Capitol Hill]
-- Penn State University [Protest on December 22nd at 
 - Seattle [Protest on December 21th, 13:00, Victor Steinbruck Park, 2001 WAVE]
 - Seattle [Protest on December 21th, 19:00, E Pine Street & 10th]
 - San Francisco [Protest on December 21th, 10:00, Consul General India, 540 Arguello Boulevard]
-- Penn State University [Protest on December 22, at 12:00 at Pattee and Paterno Library]
 - Austin [Protest on December 22nd, 14:00, 1100 Congress Avenue]
 - Madison [Protest on December 22nd at 17:00 at Madison Square, 800 Langdon Street ](https://www.facebook.com/events/820398375054847/)
 
@@ -136,10 +132,6 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - [Equality Labs](https://www.equalitylabs.org/) is building a ['call to action'](https://twitter.com/VDay/status/1207013427723456512) across the US. Their RSVP document is currently at capacity, but you can sign up for updates on [their website](https://www.equalitylabs.org/) 
 
 - DC: The South Asian Law Students Association in Georgetown is [mobilizing against the CAA/CAB](https://twitter.com/sees11sees/status/1206633608989032449), as are [SAALT](https://twitter.com/SAALTweets)
-
-
-
-Leiden - details unknown
 
 
 # 💰 Donate / Subscribe
