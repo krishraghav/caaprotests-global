@@ -80,7 +80,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - ~~Bonn [Protest on 20 December at 14:00 at Marketplatz]~~
 - ~~Heidelburg [Protest on 20 December at 16:00 at C.A.T.S Library Yard]~~
 - ~~Erfurt [Protest March on 20 December at University of Erfurt Gate at 11:00]~~
-- ~~Berlin -[Protest March on 21 December at Brandenburg Tor at 11:00](https://twitter.com/UroosaAlam1/status/1206936410869112833) ~~
+- ~~Berlin -[Protest March on 21 December at Brandenburg Tor at 11:00](https://twitter.com/UroosaAlam1/status/1206936410869112833)~~
 - ~~Gottingen [Protest on 21 December at 14:30 at Nabel Prinzesenstrasse]~~
 - ~~Munich [Protest on 21 December at 15:00 Geschwister Scholl Plaza]~~
 
@@ -98,7 +98,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - ~~Glasgow [Protest on December 21th, at 11:00 at Buchannan Street, Royal Concert Hall]~~
 
 ## United Kingdom
-- ~~Brighton -[Solidarity Gathering by University of Sussex Students on 19 December at 13;00 ater Library Square,Sussex University](https://www.facebook.com/events/2526626104328601/) ~~
+- ~~Brighton -[Solidarity Gathering by University of Sussex Students on 19 December at 13;00 ater Library Square,Sussex University](https://www.facebook.com/events/2526626104328601/)~~
 - ~~Cambridge- [Protest on December 19th, 12:00, Opposite Kings Chapel on Kings Parade~~
 - ~~London -[Protest on 21 December at 13;00 at the Parliament, Westminister]~~
 - ~~Cambridge University - [Protest on 19 December at 12:00- 13:00 opposite the Kings Chapel on Kings Parade, Cambridge](https://www.facebook.com/events/2615341235186966/)~~
@@ -109,7 +109,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 ## United States
 - ~~Washington DC (Protest on 18 December at 09:30 at the Mahatma Gandhi Statue, 21st &Q)~~
-- ~~New York City (Protest on 18 December at 17:00 outside Indian Consulate, 3 East 64th St ) - via twitter ~~
+- ~~New York City (Protest on 18 December at 17:00 outside Indian Consulate, 3 East 64th St ) - via twitter~~
 - ~~Amherst (Protest on 19 December at 11:00, Old Chapel, University of Amherst)~~
 - ~~Washington DC [Protest on 20 December at 18:00 at True Reformer Building](https://www.facebook.com/events/2415862348666237/)~~
 - ~~Houston [Protest on 20 December at 15:00 at 4300 Scotland Street](https://www.facebook.com/events/1547912832042368/)~~
