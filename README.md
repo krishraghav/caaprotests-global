@@ -32,10 +32,10 @@ The current wave of protests in India are in response to the 'Citizenship Amendm
 - [An Eyewitness Account of Police Violence at Aligarh Muslim University](https://newslaundry.com/2019/12/16/stop-slapping-them-theyll-die-an-eyewitness-account-of-police-crackdown-on-amu-protest-against-citizenship-law) *Trigger Warning: Violence*
 
 ## Police Brutality and Violence Against Protestors in Uttar Pradesh, Mangalore, Delhi
--[Tear Gas, Lathicharges and Warning Shots in Mangalore](https://www.thenewsminute.com/article/curfew-imposed-parts-mangaluru-after-violence-anti-caa-protests-114393) - Police also [entered a hospital, teargassed it, and damaged ICU doors](https://www.theweek.in/news/india/2019/12/20/mangaluru-cop-used-teargas-inside-hospital-damaged-icu-doors.html). 
--[16 people killed in Uttar Pradesh, 131 arrested in just one district](https://scroll.in/latest/947486/caa-protests-seven-killed-in-uttar-pradesh-chandrashekhar-azad-surrenders-in-delhi) - Scroll
--[A young woman narrates how Lucknow police broke into her home and smashed everything](https://scroll.in/video/947465/watch-a-young-woman-narrates-how-lucknow-police-broke-into-her-home-and-smashed-everything) - Scroll
--[11, including an 8-year-old, die in anti-citizenship law protests in Uttar Pradesh](https://theprint.in/india/11-including-an-8-year-old-die-in-anti-citizenship-law-protests-in-uttar-pradesh/338814/) - The Print
+- [Tear Gas, Lathicharges and Warning Shots in Mangalore](https://www.thenewsminute.com/article/curfew-imposed-parts-mangaluru-after-violence-anti-caa-protests-114393) - Police also [entered a hospital, teargassed it, and damaged ICU doors](https://www.theweek.in/news/india/2019/12/20/mangaluru-cop-used-teargas-inside-hospital-damaged-icu-doors.html)
+- [16 people killed in Uttar Pradesh, 131 arrested in just one district](https://scroll.in/latest/947486/caa-protests-seven-killed-in-uttar-pradesh-chandrashekhar-azad-surrenders-in-delhi) - Scroll
+- [A young woman narrates how Lucknow police broke into her home and smashed everything](https://scroll.in/video/947465/watch-a-young-woman-narrates-how-lucknow-police-broke-into-her-home-and-smashed-everything) - Scroll
+- [11, including an 8-year-old, die in anti-citizenship law protests in Uttar Pradesh](https://theprint.in/india/11-including-an-8-year-old-die-in-anti-citizenship-law-protests-in-uttar-pradesh/338814/) - The Print
 
 # 📣 Amplify
 
