@@ -11,13 +11,14 @@ The current wave of protests in India are in response to the 'Citizenship Amendm
 - [Citizenship Amendment Act Explained](https://indianexpress.com/article/explained/explained-how-to-be-a-citizen-of-india-earlier-now-6165960/) - Indian Express
 - [How exactly does India's Citizenship Amendment Bill discriminate against Muslims?](https://scroll.in/article/944852/explainer-how-exactly-does-india-s-citizenship-amendment-bill-discriminate-against-muslims_) - Scroll.in 
 - [Here’s why people are protesting India’s citizenship bill](https://globalnews.ca/news/6301241/india-protests-citizenship-bill-explainer/) - Global News
-- VIDEO: [A Legal Perspective on CAA / NRC and Why it Matters](https://www.youtube.com/watch?v=37fL0c_14eo) - Gautam Bhatia
+- VIDEO: [A Legal Perspective on CAA / NRC and Why it Matters](https://www.youtube.com/watch?v=9n_bjgrCLjg) - Gautam Bhatia
 - VIDEO: [The Reality of the Citizenship Bill](https://youtu.be/uS84V63IZUs) - Dhruv Rathee on Youtube (Hindi, with English Captions)
 - [What Exactly does the Citizenship Bill Aim to Achieve?](https://www.newslaundry.com/2019/12/10/explainer-what-exactly-does-the-citizenship-bill-aim-to-achieve) - Newslaundry 
 
 ## The National Register of Citizens (NRC)
 
 - [Inside India’s Sham Trials That Could Strip Millions of Citizenship](https://news.vice.com/en_us/article/3k33qy/worse-than-a-death-sentence-inside-indias-sham-trials-that-could-strip-millions-of-citizenship) - Rohini Mohan, for Vice News
+- VIDEO: [The Link Between CAA and NRC](https://www.youtube.com/watch?v=37fL0c_14eo) - Gautam Bhatia
 
 ## Police Brutality and Violence in Assam, Kashmir and the North East 
 - [J&K: Police Beat Up Journalists Covering Anti-Citizenship Act Protests in Srinagar](https://thewire.in/rights/citizenship-act-protest-srinagar) - The Wire
