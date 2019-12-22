@@ -58,6 +58,8 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 - [Contribute to help injured students of Jamia Millia Islamia](https://www.impactguru.com/fundraiser/help-jamia-millia-islamia?utm_source=whatsapp&utm_campaign=help-jamia-millia-islamia&utm_medium=share) organised by Radhika Sarpotdar. 
 
+- [Contribute to medical expenses for injured university students across Delhi](https://imgur.com/a/71bhSr1) 
+
 - **INTERNET SHUTDOWNS** are being deployed across the country as a means to deter protests. Donate to the [Internet Freedom Foundation](https://twitter.com/internetfreedom) which does vital research and advocacy work on digital rights in India. 
 
 - [The Software Freedom Law Centre - SFLC](https://sflc.in/donate) is a [donor-supported](https://sflc.in/donate) is an important legal services organization that brings together lawyers, policy analysts, technologists, and students to protect digital freedom. 
@@ -115,7 +117,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - ~~Houston [Protest on 20 December at 15:00 at 4300 Scotland Street](https://www.facebook.com/events/1547912832042368/)~~
 - ~~Los Angeles [Protest on December 21th, 11:00, Grand Park (Opposite City Park)](https://www.facebook.com/events/2724241064305699/)~~
 - Fremont [Protest on December 21th, 11:00, Stevenson Boulevard, and Paseo Padre PKWY]
-- Denver [Protest on December 21th, 12:00, Capitol Hill]
+- Denver [Protest on December 22nd, 12:00, 200 E Colfax Ave](https://www.facebook.com/events/453219905307062/)
 - Seattle [Protest on December 21th, 13:00, Victor Steinbruck Park, 2001 WAVE]
 - Seattle [Protest on December 21th, 19:00, E Pine Street & 10th]
 - San Francisco [Protest on December 21th, 10:00, Consul General India, 540 Arguello Boulevard]
