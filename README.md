@@ -75,14 +75,15 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Irrespective of wherever you are, you cans sign this [letter of Solidarity addressed to the Supreme Court](https://docs.google.com/forms/d/e/1FAIpQLSfuiylEazTOWdghPUDQKx1FGV0V1SzvFx-02EdEHv-881jqGQ/viewform) 
 
 ## Australia 
-- Melbourne [Protest on December 22th, between 13:00 at Fed Sq, Swanston& Flinders]
+- Melbourne [Protest on December 22nd, between 13:00 at Fed Sq, Swanston& Flinders]
 - Sydney [Protest on 22 December at 15:00 at Hyde Park, Elizabeth Street](https://www.facebook.com/events/498827651032399/)
 
 ## Canada
 - ~~Vancouver [Protest on December 19th, 11:30, University of British Columbia Fountain]~~
 - ~~Toronto [Protest on December 20th, between 12:00- 14:00 at the Consulate General of India, 265 Bloor Street East, Toronto] via instagram~~
 - ~~Montreal [Protest on December 20th, 15:00 at 853 Sherbrooke Street, Arts Building, McGill University]~~
-- Montreal [Protest on December 22th, 13:00 at Norman Bethune Street]
+- Montreal [Protest on December 22nd, 13:00 at Norman Bethune Street]
+- Vancouver [Protest on December 22nd, at 14:00 at Robinson Square] 
 
 ## Germany
 - ~~Bonn [Protest on 20 December at 14:00 at Marketplatz]~~
@@ -94,6 +95,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 ## Japan 
 - Tokyo [Protest on December 22th, at 11:00 at University of Tokyo, Akamon, Hongo Campus]
+
 ## Netherlands
 - ~~The Hague [Protest on December 20th, at 11:00 at the Indian Embassy]~~
 - ~~Amsterdam [Protest on December 21th, at 15:00 at Dam Square]~~
