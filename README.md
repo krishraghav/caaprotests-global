@@ -82,8 +82,9 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - ~~Vancouver [Protest on December 19th, 11:30, University of British Columbia Fountain]~~
 - ~~Toronto [Protest on December 20th, between 12:00- 14:00 at the Consulate General of India, 265 Bloor Street East, Toronto] via instagram~~
 - ~~Montreal [Protest on December 20th, 15:00 at 853 Sherbrooke Street, Arts Building, McGill University]~~
-- Montreal [Protest on December 22nd, 13:00 at Norman Bethune Street]
-- Vancouver [Protest on December 22nd, at 14:00 at Robinson Square] 
+- ~~Montreal [Protest on December 22nd, 13:00 at Norman Bethune Street]~~
+- ~~Vancouver [Protest on December 22nd, at 14:00 at Robinson Square]~~ 
+- EDMONTON: Protest on December 29th, 11:00 at Dr. Wilbert Mcintyre Park
 
 ## Germany
 - ~~Bonn [Protest on 20 December at 14:00 at Marketplatz]~~
@@ -94,7 +95,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - ~~Munich [Protest on 21 December at 15:00 Geschwister Scholl Plaza]~~
 
 ## Japan 
-- Tokyo [Protest on December 22th, at 11:00 at University of Tokyo, Akamon, Hongo Campus]
+- ~~Tokyo [Protest on December 22th, at 11:00 at University of Tokyo, Akamon, Hongo Campus]~~
 
 ## Netherlands
 - ~~The Hague [Protest on December 20th, at 11:00 at the Indian Embassy]~~
@@ -124,13 +125,13 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - ~~Washington DC [Protest on 20 December at 18:00 at True Reformer Building](https://www.facebook.com/events/2415862348666237/)~~
 - ~~Houston [Protest on 20 December at 15:00 at 4300 Scotland Street](https://www.facebook.com/events/1547912832042368/)~~
 - ~~Los Angeles [Protest on December 21th, 11:00, Grand Park (Opposite City Park)](https://www.facebook.com/events/2724241064305699/)~~
-- Fremont [Protest on December 21th, 11:00, Stevenson Boulevard, and Paseo Padre PKWY]
-- Denver [Protest on December 22nd, 12:00, 200 E Colfax Ave](https://www.facebook.com/events/453219905307062/)
-- Seattle [Protest on December 21th, 13:00, Victor Steinbruck Park, 2001 WAVE]
-- Seattle [Protest on December 21th, 19:00, E Pine Street & 10th]
-- San Francisco [Protest on December 21th, 10:00, Consul General India, 540 Arguello Boulevard]
-- Austin [Protest on December 22nd, 14:00, 1100 Congress Avenue]
-- Madison [Protest on December 22nd at 17:00 at Madison Square, 800 Langdon Street ](https://www.facebook.com/events/820398375054847/)
+- ~~Fremont [Protest on December 21th, 11:00, Stevenson Boulevard, and Paseo Padre PKWY]~~
+- ~~Denver [Protest on December 22nd, 12:00, 200 E Colfax Ave](https://www.facebook.com/events/453219905307062/)~~
+- ~~Seattle [Protest on December 21th, 13:00, Victor Steinbruck Park, 2001 WAVE]~~
+- ~~Seattle [Protest on December 21th, 19:00, E Pine Street & 10th]~~
+- ~~San Francisco [Protest on December 21th, 10:00, Consul General India, 540 Arguello Boulevard]~~
+- ~~Austin [Protest on December 22nd, 14:00, 1100 Congress Avenue]~~
+- ~~Madison [Protest on December 22nd at 17:00 at Madison Square, 800 Langdon Street ](https://www.facebook.com/events/820398375054847/)~~
 
 
 - University of Wisconsin-Madison - [Solidarity Letter](https://docs.google.com/forms/d/e/1FAIpQLSctUg3-jfVJwmse5viI5rinTc-6_QJvYjikWW1fdkpvEhyk-A/viewform?fbclid=IwAR3jzjqeIaCQxShDBMrwAdOLy3299Gmnj9J6dwp9ix4ljLmpy9fdtS9_t2k) - Click on the link to sign. 
