@@ -35,6 +35,8 @@ A non-exhaustive list of voices and institutions to help amplify word of the pro
 
 - [Hindutva 101: A guide for discussing Hindu nationalism with parents, relatives, freinds, colleagues_](https://www.sadhana.org/hindutva-101?fbclid=IwAR0vCeJBL5jkSdEFlZ7u0Bonk5uIb2z_MHefczSoq0JlneZ4Hm1kU6yuMqo) -- Directed to Hindu Americans but can be applicable across a Hindu diaspora. 
 
+- **[The real battle for the narrative around CAA is on Whatsapp](https://docs.google.com/document/d/1_jAnseYoEJACEtC4-VT5eopKYdgm63A9GXeWsDLlaok/edit):** A guide to combating disinformation on Whatsapp groups, with handy links to counter common talking points - by Krish Ashok 
+
 - [A curated Google Folder with links to printable booklets, posters, reading material and petition templates](https://drive.google.com/drive/folders/1nO9OQoPJ6p--Url05beS14mB6yq_Sm0n). Start here if you want to spread the word where you are. 
 
 - [South Asia Solidarity](https://twitter.com/SAsiaSolidarity) - Based in Britain 
@@ -43,7 +45,7 @@ A non-exhaustive list of voices and institutions to help amplify word of the pro
 
 - Creatives Against #CAA: Help spread the word with or contribute to some [fantastic artwork hosted at the Kadak Collective](http://creativesagainstcaa.kadakcollective.com/) (all posters are released under a Creative Commons license).
 
-- Help spread the word about **pro-bono lawyers** who have stepped forward to offer legal assistance: [List 1](https://twitter.com/sarahfarooqui20/status/1207559590164025344/photo/1), [List 2](https://twitter.com/chuck_gopal/status/1207585292892475392) and [List 3](https://twitter.com/borges/status/1207581532228964352). Please verify information first-hand before using in case of an emergency. 
+- Help spread the word about **pro-bono lawyers and doctors** who have stepped forward to offer legal/medical assistance: [List 1](https://caa-nrc-protest.netlify.com/#/5), [Lawyers only - List 2](https://twitter.com/sarahfarooqui20/status/1207559590164025344/photo/1), [List 3](https://twitter.com/chuck_gopal/status/1207585292892475392) and [List 4](https://twitter.com/borges/status/1207581532228964352). Please verify information first-hand before using in case of an emergency. 
 
 - Help TRANSLATE this document or key primers to the situation, and [get in touch](mailto:hamsini.h94@gmail.com) so we can link to it here!  
 
