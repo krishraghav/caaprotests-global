@@ -11,6 +11,7 @@ The current wave of protests in India are in response to the 'Citizenship Amendm
 - [Citizenship Amendment Act Explained](https://indianexpress.com/article/explained/explained-how-to-be-a-citizen-of-india-earlier-now-6165960/) - Indian Express
 - [How exactly does India's Citizenship Amendment Bill discriminate against Muslims?](https://scroll.in/article/944852/explainer-how-exactly-does-india-s-citizenship-amendment-bill-discriminate-against-muslims_) - Scroll.in 
 - [Here’s why people are protesting India’s citizenship bill](https://globalnews.ca/news/6301241/india-protests-citizenship-bill-explainer/) - Global News
+- VIDEO: [A Legal Perspective on CAA / NRC and Why it Matters](https://www.youtube.com/watch?v=37fL0c_14eo) - Gautam Bhatia
 - VIDEO: [The Reality of the Citizenship Bill](https://youtu.be/uS84V63IZUs) - Dhruv Rathee on Youtube (Hindi, with English Captions)
 - [What Exactly does the Citizenship Bill Aim to Achieve?](https://www.newslaundry.com/2019/12/10/explainer-what-exactly-does-the-citizenship-bill-aim-to-achieve) - Newslaundry 
 
