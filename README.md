@@ -75,16 +75,19 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Irrespective of wherever you are, you cans sign this [letter of Solidarity addressed to the Supreme Court](https://docs.google.com/forms/d/e/1FAIpQLSfuiylEazTOWdghPUDQKx1FGV0V1SzvFx-02EdEHv-881jqGQ/viewform) 
 
 ## Australia 
-- Melbourne [Protest on December 22nd, between 13:00 at Fed Sq, Swanston& Flinders]
-- Sydney [Protest on 22 December at 15:00 at Hyde Park, Elizabeth Street](https://www.facebook.com/events/498827651032399/)
+<strike>- Melbourne [Protest on December 22nd, between 13:00 at Fed Sq, Swanston& Flinders]</strike>
+<strike>- Sydney [Protest on 22 December at 15:00 at Hyde Park, Elizabeth Street](https://www.facebook.com/events/498827651032399/)</strike>
 
 ## Canada
+- EDMONTON: Protest on December 29th, 11:00 at Dr. Wilbert Mcintyre Park
+- Calgary [Protest on December 23rd, at 12:00 at Calgary City Hall](https://www.facebook.com/events/3752068844818434/) 
+
 - ~~Vancouver [Protest on December 19th, 11:30, University of British Columbia Fountain]~~
 - ~~Toronto [Protest on December 20th, between 12:00- 14:00 at the Consulate General of India, 265 Bloor Street East, Toronto] via instagram~~
 - ~~Montreal [Protest on December 20th, 15:00 at 853 Sherbrooke Street, Arts Building, McGill University]~~
 - ~~Montreal [Protest on December 22nd, 13:00 at Norman Bethune Street]~~
 - ~~Vancouver [Protest on December 22nd, at 14:00 at Robinson Square]~~ 
-- EDMONTON: Protest on December 29th, 11:00 at Dr. Wilbert Mcintyre Park
+
 
 ## Germany
 - ~~Bonn [Protest on 20 December at 14:00 at Marketplatz]~~
@@ -109,29 +112,20 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - ~~Glasgow [Protest on December 21th, at 11:00 at Buchannan Street, Royal Concert Hall]~~
 
 ## United Kingdom
-- ~~Brighton -[Solidarity Gathering by University of Sussex Students on 19 December at 13;00 ater Library Square,Sussex University](https://www.facebook.com/events/2526626104328601/)~~
-- ~~Cambridge- [Protest on December 19th, 12:00, Opposite Kings Chapel on Kings Parade~~
-- ~~London -[Protest on 21 December at 13;00 at the Parliament, Westminister]~~
-- ~~Cambridge University - [Protest on 19 December at 12:00- 13:00 opposite the Kings Chapel on Kings Parade, Cambridge](https://www.facebook.com/events/2615341235186966/)~~
 - Oxford University - [Solidarity Letter by Students](https://twitter.com/h_tejas/status/1206855838608039936) DM or get in touch with Tejas Harad to sign. 
 
 - [University and College Union](https://www.ucu.org.uk/article/10504/UCU-statement-on-response-to-student-protests-in-India) - Statement on response to student protests in India
 
+- ~~Brighton -[Solidarity Gathering by University of Sussex Students on 19 December at 13;00 ater Library Square,Sussex University](https://www.facebook.com/events/2526626104328601/)~~
+- ~~Cambridge- [Protest on December 19th, 12:00, Opposite Kings Chapel on Kings Parade~~
+- ~~London -[Protest on 21 December at 13;00 at the Parliament, Westminister]~~
+- ~~Cambridge University - [Protest on 19 December at 12:00- 13:00 opposite the Kings Chapel on Kings Parade, Cambridge](https://www.facebook.com/events/2615341235186966/)~~
+
+
 
 ## United States
-- ~~Washington DC (Protest on 18 December at 09:30 at the Mahatma Gandhi Statue, 21st &Q)~~
-- ~~New York City (Protest on 18 December at 17:00 outside Indian Consulate, 3 East 64th St ) - via twitter~~
-- ~~Amherst (Protest on 19 December at 11:00, Old Chapel, University of Amherst)~~
-- ~~Washington DC [Protest on 20 December at 18:00 at True Reformer Building](https://www.facebook.com/events/2415862348666237/)~~
-- ~~Houston [Protest on 20 December at 15:00 at 4300 Scotland Street](https://www.facebook.com/events/1547912832042368/)~~
-- ~~Los Angeles [Protest on December 21th, 11:00, Grand Park (Opposite City Park)](https://www.facebook.com/events/2724241064305699/)~~
-- ~~Fremont [Protest on December 21th, 11:00, Stevenson Boulevard, and Paseo Padre PKWY]~~
-- ~~Denver [Protest on December 22nd, 12:00, 200 E Colfax Ave](https://www.facebook.com/events/453219905307062/)~~
-- ~~Seattle [Protest on December 21th, 13:00, Victor Steinbruck Park, 2001 WAVE]~~
-- ~~Seattle [Protest on December 21th, 19:00, E Pine Street & 10th]~~
-- ~~San Francisco [Protest on December 21th, 10:00, Consul General India, 540 Arguello Boulevard]~~
-- ~~Austin [Protest on December 22nd, 14:00, 1100 Congress Avenue]~~
-- ~~Madison [Protest on December 22nd at 17:00 at Madison Square, 800 Langdon Street ](https://www.facebook.com/events/820398375054847/)~~
+
+- Urbana, Illinois [Protest against CAA on 23 December at 15:00 at Illini Union, 1401 W Green St, Urbana ](https://www.facebook.com/events/2597619167024042/)
 
 
 - University of Wisconsin-Madison - [Solidarity Letter](https://docs.google.com/forms/d/e/1FAIpQLSctUg3-jfVJwmse5viI5rinTc-6_QJvYjikWW1fdkpvEhyk-A/viewform?fbclid=IwAR3jzjqeIaCQxShDBMrwAdOLy3299Gmnj9J6dwp9ix4ljLmpy9fdtS9_t2k) - Click on the link to sign. 
@@ -147,6 +141,20 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - [Equality Labs](https://www.equalitylabs.org/) is building a ['call to action'](https://twitter.com/VDay/status/1207013427723456512) across the US. Their RSVP document is currently at capacity, but you can sign up for updates on [their website](https://www.equalitylabs.org/) 
 
 - DC: The South Asian Law Students Association in Georgetown is [mobilizing against the CAA/CAB](https://twitter.com/sees11sees/status/1206633608989032449), as are [SAALT](https://twitter.com/SAALTweets)
+
+- ~~Washington DC (Protest on 18 December at 09:30 at the Mahatma Gandhi Statue, 21st &Q)~~
+- ~~New York City (Protest on 18 December at 17:00 outside Indian Consulate, 3 East 64th St ) - via twitter~~
+- ~~Amherst (Protest on 19 December at 11:00, Old Chapel, University of Amherst)~~
+- ~~Washington DC [Protest on 20 December at 18:00 at True Reformer Building](https://www.facebook.com/events/2415862348666237/)~~
+- ~~Houston [Protest on 20 December at 15:00 at 4300 Scotland Street](https://www.facebook.com/events/1547912832042368/)~~
+- ~~Los Angeles [Protest on December 21th, 11:00, Grand Park (Opposite City Park)](https://www.facebook.com/events/2724241064305699/)~~
+- ~~Fremont [Protest on December 21th, 11:00, Stevenson Boulevard, and Paseo Padre PKWY]~~
+- ~~Denver [Protest on December 22nd, 12:00, 200 E Colfax Ave](https://www.facebook.com/events/453219905307062/)~~
+- ~~Seattle [Protest on December 21th, 13:00, Victor Steinbruck Park, 2001 WAVE]~~
+- ~~Seattle [Protest on December 21th, 19:00, E Pine Street & 10th]~~
+- ~~San Francisco [Protest on December 21th, 10:00, Consul General India, 540 Arguello Boulevard]~~
+- ~~Austin [Protest on December 22nd, 14:00, 1100 Congress Avenue]~~
+- ~~Madison [Protest on December 22nd at 17:00 at Madison Square, 800 Langdon Street ](https://www.facebook.com/events/820398375054847/)~~
 
 
 # 💰 Donate / Subscribe
