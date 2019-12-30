@@ -74,13 +74,15 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 - Irrespective of wherever you are, you cans sign this [letter of Solidarity addressed to the Supreme Court](https://docs.google.com/forms/d/e/1FAIpQLSfuiylEazTOWdghPUDQKx1FGV0V1SzvFx-02EdEHv-881jqGQ/viewform) 
 
+**A series of global protests are being planned for Republic Day, January 26.** Contact your local organizers, or organize your own march! Details will be added below as we know them.  
+
 ## Australia 
 <strike>- Melbourne [Protest on December 22nd, between 13:00 at Fed Sq, Swanston& Flinders]</strike>
 <strike>- Sydney [Protest on 22 December at 15:00 at Hyde Park, Elizabeth Street](https://www.facebook.com/events/498827651032399/)</strike>
 
 ## Canada
-- EDMONTON: Protest on December 29th, 11:00 at Dr. Wilbert Mcintyre Park
-- Calgary [Protest on December 23rd, at 12:00 at Calgary City Hall](https://www.facebook.com/events/3752068844818434/) 
+- ~~EDMONTON: Protest on December 29th, 11:00 at Dr. Wilbert Mcintyre Park~~
+- ~~Calgary [Protest on December 23rd, at 12:00 at Calgary City Hall](https://www.facebook.com/events/3752068844818434/)~~
 
 - ~~Vancouver [Protest on December 19th, 11:30, University of British Columbia Fountain]~~
 - ~~Toronto [Protest on December 20th, between 12:00- 14:00 at the Consulate General of India, 265 Bloor Street East, Toronto] via instagram~~
@@ -88,6 +90,8 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - ~~Montreal [Protest on December 22nd, 13:00 at Norman Bethune Street]~~
 - ~~Vancouver [Protest on December 22nd, at 14:00 at Robinson Square]~~ 
 
+## Sweden
+- Stockholm: Gathering at 12 noon on December 31st ([here for venue details](https://twitter.com/Die5hutz3ng3l/status/1211396593209028609))
 
 ## Germany
 - ~~Bonn [Protest on 20 December at 14:00 at Marketplatz]~~
@@ -104,6 +108,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - ~~The Hague [Protest on December 20th, at 11:00 at the Indian Embassy]~~
 - ~~Amsterdam [Protest on December 21th, at 15:00 at Dam Square]~~
 - ~~Groningen [Protest on December 21th, at 10:00 at the University Academy Building]~~
+- The Hague [Protest in front of the ICJ on December 30, 11am](https://www.facebook.com/events/600288914122394/) 
 
 ## New Zealand
 - ~~Auckland [Protest March on 21 December at Aotea Square at 12:00](https://twitter.com/drsapna/status/1207229471666819073)~~
@@ -121,11 +126,13 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - ~~London -[Protest on 21 December at 13;00 at the Parliament, Westminister]~~
 - ~~Cambridge University - [Protest on 19 December at 12:00- 13:00 opposite the Kings Chapel on Kings Parade, Cambridge](https://www.facebook.com/events/2615341235186966/)~~
 
+- Solidarity Meeting in London on December 30, [contact here for details](https://www.facebook.com/poO545) 
+
 
 
 ## United States
 
-- Urbana, Illinois [Protest against CAA on 23 December at 15:00 at Illini Union, 1401 W Green St, Urbana ](https://www.facebook.com/events/2597619167024042/)
+- ~~Urbana, Illinois [Protest against CAA on 23 December at 15:00 at Illini Union, 1401 W Green St, Urbana ](https://www.facebook.com/events/2597619167024042/)~~
 
 
 - University of Wisconsin-Madison - [Solidarity Letter](https://docs.google.com/forms/d/e/1FAIpQLSctUg3-jfVJwmse5viI5rinTc-6_QJvYjikWW1fdkpvEhyk-A/viewform?fbclid=IwAR3jzjqeIaCQxShDBMrwAdOLy3299Gmnj9J6dwp9ix4ljLmpy9fdtS9_t2k) - Click on the link to sign. 
