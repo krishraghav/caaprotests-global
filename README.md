@@ -96,6 +96,8 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - OXFORD: 6 JANUARY: [Protest against the violence at JNU at Radcliffe Camera, 12pm UTC](https://www.facebook.com/events/562587924294201/) 
 - LONDON: 6 JANUARY: [Emergency Protest at SOAS at 10am](https://twitter.com/Annapurnamenon/status/1213861710441959425) 
 
+## Canada
+- TORONTO: 6 JANUARY: Protest outside the Indian Consulate, 365 Bloor St E, at 12 noon. 
 
 ## 2019 Protests and Solidarity Initiatives: 
 
