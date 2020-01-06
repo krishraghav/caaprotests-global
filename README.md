@@ -69,9 +69,9 @@ A non-exhaustive list of voices and institutions to help amplify word of the pro
 
 Ways to contribute from afar - this section lists donation opportunites, global marches, and gestures of solidarity.
 
-- [Contribute to help injured students of Jamia Millia Islamia](https://www.impactguru.com/fundraiser/help-jamia-millia-islamia?utm_source=whatsapp&utm_campaign=help-jamia-millia-islamia&utm_medium=share) organised by Radhika Sarpotdar. 
+- ~~[Contribute to help injured students of Jamia Millia Islamia](https://www.impactguru.com/fundraiser/help-jamia-millia-islamia?utm_source=whatsapp&utm_campaign=help-jamia-millia-islamia&utm_medium=share) organised by Radhika Sarpotdar.~~ 
 
-- [Contribute to medical expenses for injured university students across Delhi](https://imgur.com/a/71bhSr1) 
+- ~~[Contribute to medical expenses for injured university students across Delhi](https://imgur.com/a/71bhSr1)~~ 
 
 - **INTERNET SHUTDOWNS** are being deployed across the country as a means to deter protests. Donate to the [Internet Freedom Foundation](https://twitter.com/internetfreedom) which does vital research and advocacy work on digital rights in India. 
 
@@ -94,6 +94,8 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 ## United Kingdom
 - OXFORD: 6 JANUARY: [Protest against the violence at JNU at Radcliffe Camera, 12pm UTC](https://www.facebook.com/events/562587924294201/) 
+
+
 
 ## 2019 Protests and Solidarity Initiatives: 
 
