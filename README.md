@@ -1,7 +1,7 @@
 # Ways to Support the #CAAProtests from Afar
 This is a continually-updated document providing context, resources, reading lists and suggestions for how to engage with, understand and support the #CAAProtests in India from afar. If you would like to add to the list, please [get in touch here](mailto:krish.raghav@gmail.com) [or here](mailto:hamsini.h94@gmail.com)
 
-Last updated 22 December 2019. Maintained by [Hamsini Hariharan](https://twitter.com/HamsiniH) and [Krish Raghav](https://twitter.com/krishraghav). 
+Last updated 6 January 2020. Maintained by [Hamsini Hariharan](https://twitter.com/HamsiniH) and [Krish Raghav](https://twitter.com/krishraghav). 
 
 # 📚 Understand 
 
@@ -36,6 +36,13 @@ The current wave of protests in India are in response to the 'Citizenship Amendm
 - [16 people killed in Uttar Pradesh, 131 arrested in just one district](https://scroll.in/latest/947486/caa-protests-seven-killed-in-uttar-pradesh-chandrashekhar-azad-surrenders-in-delhi) - Scroll
 - [A young woman narrates how Lucknow police broke into her home and smashed everything](https://scroll.in/video/947465/watch-a-young-woman-narrates-how-lucknow-police-broke-into-her-home-and-smashed-everything) - Scroll
 - [11, including an 8-year-old, die in anti-citizenship law protests in Uttar Pradesh](https://theprint.in/india/11-including-an-8-year-old-die-in-anti-citizenship-law-protests-in-uttar-pradesh/338814/) - The Print
+
+# Mob Attack on Jawaharlal Nehru University Campus, Delhi
+On the evening of January 5, a large mob rampaged through the campus of Jawaharlal Nehru University, going hostel-to-hostel, brutally attacking teachers and students.
+
+- [JNU violence: Masked men run riot inside campus for 3 hours, 26 injured](https://indianexpress.com/article/india/jawaharlal-nehru-university-jnu-delhi-violence-abvp-jnusu-6201447/)
+- [Police Did Nothing: JNU Students, Staff Allege Free Hand to Goons](https://www.thequint.com/news/politics/delhi-police-did-nothing-jnu-students-staff-allege-free-hand-to-goons)
+- [JNU: WhatsApp messages planning attack traced to ABVP activists](JNU: WhatsApp messages planning attack traced to ABVP activists) 
 
 # 📣 Amplify
 
