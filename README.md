@@ -98,6 +98,8 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 ## Canada
 - TORONTO: 6 JANUARY: Protest outside the Indian Consulate, 365 Bloor St E, at 12 noon. 
+## South Africa
+- Cape Town: 9 January: [ Protests at 34 Bree Street, Cape Town](https://www.facebook.com/events/2544093589202419/) 
 
 ## 2019 Protests and Solidarity Initiatives: 
 
