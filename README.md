@@ -83,6 +83,20 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 **A series of global protests are being planned for Republic Day, January 26.** Contact your local organizers, or organize your own march! Details will be added below as we know them.  
 
+
+## 2020 Protests
+
+## United States
+- NEW YORK: 6 JANUARY: [Protest outside the Indian Embassy, 3E 64 St, at 3pm](https://www.facebook.com/events/2474136179516358/)
+- PHILLY: 6 JANUARY: [Protest outside Van Pelt, uPenn at 2pm](https://www.facebook.com/events/737256066764056/)
+
+- NEW YORK:30 January: [Planned Protest against CAA, NPR at Columbia University](https://www.facebook.com/events/608487696583157/) 
+
+## United Kingdom
+- OXFORD: 6 JANUARY: [Protest against the violence at JNU at Radcliffe Camera, 12pm UTC](https://www.facebook.com/events/562587924294201/) 
+
+## 2019 Protests and Solidarity Initiatives: 
+
 ## Australia 
 <strike>- Melbourne [Protest on December 22nd, between 13:00 at Fed Sq, Swanston& Flinders]</strike>
 <strike>- Sydney [Protest on 22 December at 15:00 at Hyde Park, Elizabeth Street](https://www.facebook.com/events/498827651032399/)</strike>
@@ -98,7 +112,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - ~~Vancouver [Protest on December 22nd, at 14:00 at Robinson Square]~~ 
 
 ## Sweden
-- Stockholm: Gathering at 12 noon on December 31st ([here for venue details](https://twitter.com/Die5hutz3ng3l/status/1211396593209028609))
+- ~~Stockholm: Gathering at 12 noon on December 31st ([here for venue details](https://twitter.com/Die5hutz3ng3l/status/1211396593209028609))~~
 
 ## Germany
 - ~~Bonn [Protest on 20 December at 14:00 at Marketplatz]~~
@@ -133,7 +147,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - ~~London -[Protest on 21 December at 13;00 at the Parliament, Westminister]~~
 - ~~Cambridge University - [Protest on 19 December at 12:00- 13:00 opposite the Kings Chapel on Kings Parade, Cambridge](https://www.facebook.com/events/2615341235186966/)~~
 
-- Solidarity Meeting in London on December 30, [contact here for details](https://www.facebook.com/poO545) 
+- ~~Solidarity Meeting in London on December 30, [contact here for details](https://www.facebook.com/poO545)~~ 
 
 
 
