@@ -87,21 +87,27 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 ## 2020 Protests
 
 ## United States
-- NEW YORK: 6 JANUARY: [Protest outside the Indian Embassy, 3E 64 St, at 3pm](https://www.facebook.com/events/2474136179516358/)
-- PHILLY: 6 JANUARY: [Protest outside Van Pelt, uPenn at 2pm](https://www.facebook.com/events/737256066764056/)
-
 - NEW YORK:30 January: [Planned Protest against CAA, NPR at Columbia University](https://www.facebook.com/events/608487696583157/) 
 
-## United Kingdom
-- OXFORD: 6 JANUARY: [Protest against the violence at JNU at Radcliffe Camera, 12pm UTC](https://www.facebook.com/events/562587924294201/) 
-- LONDON: 6 JANUARY: [Emergency Protest at SOAS at 10am](https://twitter.com/Annapurnamenon/status/1213861710441959425) 
-- SUSSEX: 6-10 January: Solidarity Gathering at University of Sussex, Liberty Square from 1-1:30pm, Monday to Friday
+<strike>- NEW YORK: 6 JANUARY: [Protest outside the Indian Embassy, 3E 64 St, at 3pm](https://www.facebook.com/events/2474136179516358/)
+- PHILLY: 6 JANUARY: [Protest outside Van Pelt, uPenn at 2pm](https://www.facebook.com/events/737256066764056/)</strike>
 
-## Canada
-- TORONTO: 6 JANUARY: Protest outside the Indian Consulate, 365 Bloor St E, at 12 noon. 
+
+## United Kingdom
+- London: 8 January: [Protest from 8 am to 8pm at the Office of the High Comissioner of India](https://www.facebook.com/events/1045664612463465/) 
+- SUSSEX: 6-10 January: Solidarity Gathering at University of Sussex, Liberty Square from 1-1:30pm, Monday to Friday
+<strike>- OXFORD: 6 JANUARY: [Protest against the violence at JNU at Radcliffe Camera, 12pm UTC](https://www.facebook.com/events/562587924294201/) 
+- LONDON: 6 JANUARY: [Emergency Protest at SOAS at 10am](https://twitter.com/Annapurnamenon/status/1213861710441959425) </strike>
+
+## Germany 
+- Munich: [11 January: Protest at Odeonplatz at 12 pm](https://www.facebook.com/events/741197409702327/)
+
 
 ## South Africa
 - Cape Town: 9 January: [ Protests at 34 Bree Street, Cape Town](https://www.facebook.com/events/2544093589202419/) 
+
+## Canada
+<strike>- TORONTO: 6 JANUARY: Protest outside the Indian Consulate, 365 Bloor St E, at 12 noon. </strike>
 
 ## 2019 Protests and Solidarity Initiatives: 
 
