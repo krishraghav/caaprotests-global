@@ -1,7 +1,7 @@
 # Ways to Support the #CAAProtests from Afar
 This is a continually-updated document providing context, resources, reading lists and suggestions for how to engage with, understand and support the #CAAProtests in India from afar. If you would like to add to the list, please [get in touch here](mailto:krish.raghav@gmail.com) [or here](mailto:hamsini.h94@gmail.com)
 
-Last updated 6 January 2020. Maintained by [Hamsini Hariharan](https://twitter.com/HamsiniH) and [Krish Raghav](https://twitter.com/krishraghav). 
+Last updated 7 January 2020. Maintained by [Hamsini Hariharan](https://twitter.com/HamsiniH) and [Krish Raghav](https://twitter.com/krishraghav). 
 
 # 📚 Understand 
 
@@ -95,9 +95,11 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 ## United Kingdom
 - OXFORD: 6 JANUARY: [Protest against the violence at JNU at Radcliffe Camera, 12pm UTC](https://www.facebook.com/events/562587924294201/) 
 - LONDON: 6 JANUARY: [Emergency Protest at SOAS at 10am](https://twitter.com/Annapurnamenon/status/1213861710441959425) 
+- SUSSEX: 6-10 January: Solidarity Gathering at University of Sussex, Liberty Square from 1-1:30pm, Monday to Friday
 
 ## Canada
 - TORONTO: 6 JANUARY: Protest outside the Indian Consulate, 365 Bloor St E, at 12 noon. 
+
 ## South Africa
 - Cape Town: 9 January: [ Protests at 34 Bree Street, Cape Town](https://www.facebook.com/events/2544093589202419/) 
 
