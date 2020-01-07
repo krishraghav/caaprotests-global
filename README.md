@@ -87,6 +87,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 ## 2020 Protests
 
 ## United States
+- Los Angeles: 19 January, Protest on the Corner of 186th and Pioneer Blvd, Atesia between 1-4pm
 - NEW YORK:30 January: [Planned Protest against CAA, NPR at Columbia University](https://www.facebook.com/events/608487696583157/) 
 
 <strike>- NEW YORK: 6 JANUARY: [Protest outside the Indian Embassy, 3E 64 St, at 3pm](https://www.facebook.com/events/2474136179516358/)
