@@ -96,7 +96,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 ## United Kingdom
 - London: 8 January: [Protest from 8 am to 8pm at the Office of the High Comissioner of India](https://www.facebook.com/events/1045664612463465/) 
-- SUSSEX: 6-10 January: Solidarity Gathering at University of Sussex, Liberty Square from 1-1:30pm, Monday to Friday
+- BRIGHTON: 6-10 January: Solidarity Gathering at University of Sussex, Library Square from 1-1:30pm, Monday to Friday
 <strike>- OXFORD: 6 JANUARY: [Protest against the violence at JNU at Radcliffe Camera, 12pm UTC](https://www.facebook.com/events/562587924294201/) 
 - LONDON: 6 JANUARY: [Emergency Protest at SOAS at 10am](https://twitter.com/Annapurnamenon/status/1213861710441959425) </strike>
 
