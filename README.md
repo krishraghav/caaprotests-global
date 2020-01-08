@@ -90,7 +90,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Los Angeles: 19 January, Protest on the Corner of 186th and Pioneer Blvd, Atesia between 1-4pm
 - NEW YORK:30 January: [Planned Protest against CAA, NPR at Columbia University](https://www.facebook.com/events/608487696583157/) 
 
-<strike>- NEW YORK: 6 JANUARY: [Protest outside the Indian Embassy, 3E 64 St, at 3pm](https://www.facebook.com/events/2474136179516358/)
+<strike> - NEW YORK: 6 JANUARY: [Protest outside the Indian Embassy, 3E 64 St, at 3pm](https://www.facebook.com/events/2474136179516358/)
 - PHILLY: 6 JANUARY: [Protest outside Van Pelt, uPenn at 2pm](https://www.facebook.com/events/737256066764056/)</strike>
 
 
@@ -98,7 +98,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - London: 8 January: [Protest from 8 am to 8pm at the Office of the High Comissioner of India](https://www.facebook.com/events/1045664612463465/) 
 - BRIGHTON: 6-10 January: Solidarity Gathering at University of Sussex, Library Square from 1-1:30pm, Monday to Friday
 
-<strike>- OXFORD: 6 JANUARY: [Protest against the violence at JNU at Radcliffe Camera, 12pm UTC](https://www.facebook.com/events/562587924294201/) 
+<strike> - OXFORD: 6 JANUARY: [Protest against the violence at JNU at Radcliffe Camera, 12pm UTC](https://www.facebook.com/events/562587924294201/) 
 - LONDON: 6 JANUARY: [Emergency Protest at SOAS at 10am](https://twitter.com/Annapurnamenon/status/1213861710441959425) </strike>
 
 ## Germany 
@@ -109,6 +109,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - Cape Town: 9 January: [ Protests at 34 Bree Street, Cape Town](https://www.facebook.com/events/2544093589202419/) 
 
 ## Canada
+Vancouver: 26 January: [Solidarity event with Indian univertsities](https://www.facebook.com/events/597250237501920/)
 <strike>- TORONTO: 6 JANUARY: Protest outside the Indian Consulate, 365 Bloor St E, at 12 noon. </strike>
 
 ## 2019 Protests and Solidarity Initiatives: 
