@@ -60,7 +60,7 @@ A non-exhaustive list of voices and institutions to help amplify word of the pro
 
 - Creatives Against #CAA: Help spread the word with or contribute to some [fantastic artwork hosted at the Kadak Collective](http://creativesagainstcaa.kadakcollective.com/) (all posters are released under a Creative Commons license).
 
-- Help spread the word about **pro-bono lawyers and doctors** who have stepped forward to offer legal/medical assistance: [List 1](https://caa-nrc-protest.netlify.com/#/5), [Lawyers only - List 2](https://twitter.com/sarahfarooqui20/status/1207559590164025344/photo/1), [List 3](https://twitter.com/chuck_gopal/status/1207585292892475392) and [List 4](https://twitter.com/borges/status/1207581532228964352). Please verify information first-hand before using in case of an emergency. 
+- ~~Help spread the word about **pro-bono lawyers and doctors** who have stepped forward to offer legal/medical assistance: [List 1](https://caa-nrc-protest.netlify.com/#/5), [Lawyers only - List 2](https://twitter.com/sarahfarooqui20/status/1207559590164025344/photo/1), [List 3](https://twitter.com/chuck_gopal/status/1207585292892475392) and [List 4](https://twitter.com/borges/status/1207581532228964352). Please verify information first-hand before using in case of an emergency.~~ 
 
 - Help TRANSLATE this document or key primers to the situation, and [get in touch](mailto:hamsini.h94@gmail.com) so we can link to it here!  
 
@@ -96,7 +96,7 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 ## United Kingdom
 - London: 8 January: [Protest from 8 am to 8pm at the Office of the High Comissioner of India](https://www.facebook.com/events/1045664612463465/) 
-- BRIGHTON: 6-10 January: Solidarity Gathering at University of Sussex, Library Square from 1-1:30pm, Monday to Friday
+- BRIGHTON: 6-10 January: [Solidarity Gathering at University of Sussex, Library Square from 1-1:30pm, Monday to Friday](https://www.facebook.com/events/1382815025252022)
 
 <strike> - OXFORD: 6 JANUARY: [Protest against the violence at JNU at Radcliffe Camera, 12pm UTC](https://www.facebook.com/events/562587924294201/) 
 - LONDON: 6 JANUARY: [Emergency Protest at SOAS at 10am](https://twitter.com/Annapurnamenon/status/1213861710441959425) </strike>
