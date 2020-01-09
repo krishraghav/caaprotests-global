@@ -1,7 +1,7 @@
 # Ways to Support the #CAAProtests from Afar
 This is a continually-updated document providing context, resources, reading lists and suggestions for how to engage with, understand and support the #CAAProtests in India from afar. If you would like to add to the list, please [get in touch here](mailto:krish.raghav@gmail.com) [or here](mailto:hamsini.h94@gmail.com)
 
-Last updated 7 January 2020. Maintained by [Hamsini Hariharan](https://twitter.com/HamsiniH) and [Krish Raghav](https://twitter.com/krishraghav). 
+Last updated 10 January 2020. Maintained by [Hamsini Hariharan](https://twitter.com/HamsiniH) and [Krish Raghav](https://twitter.com/krishraghav). 
 
 # 📚 Understand 
 
@@ -88,11 +88,13 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 ## United States
 - Los Angeles: 19 January, Protest on the Corner of 186th and Pioneer Blvd, Atesia between 1-4pm
+- Chicago: 19 January, [Protest at Patel Brothers 2610 W Devon Ave at 12pm](https://www.facebook.com/events/patel-brothers/chicago-against-hindu-fascism/747574759064424/)
 - NEW YORK:30 January: [Planned Protest against CAA, NPR at Columbia University](https://www.facebook.com/events/608487696583157/) 
 
 <strike> - NEW YORK: 6 JANUARY: [Protest outside the Indian Embassy, 3E 64 St, at 3pm](https://www.facebook.com/events/2474136179516358/)
 - PHILLY: 6 JANUARY: [Protest outside Van Pelt, uPenn at 2pm](https://www.facebook.com/events/737256066764056/)</strike>
 
+- CHICAGO: 19 January
 
 ## United Kingdom
 - London: 8 January: [Protest from 8 am to 8pm at the Office of the High Comissioner of India](https://www.facebook.com/events/1045664612463465/) 
