@@ -87,7 +87,12 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 ## 2020 Protests
 
 ## United States
-- Los Angeles: 19 January, Protest on the Corner of 186th and Pioneer Blvd, Atesia between 1-4pm
+
+- Detroit: 11 January [Protest at Wayne State University between 14;00and 16;00](https://www.facebook.com/events/1466124406879881/)
+- PHILLY: 15 JANUARY: [Protest at The Button, outside Van Pelt Library, uPenn at 12pm](https://www.facebook.com/events/475097523201332/) 
+- Boston: 15 January: [Talk on the Constitutional Validity of the CAA at Richard A. & Susan F. Smith Campus Center, 19;00](https://www.facebook.com/events/593184607917672/) 
+- Boston (Waltham): 19 January [Protest at 610, Main Street, Waltham between 12;30 and 16;00](https://www.facebook.com/events/2488799511390965/)
+- Los Angeles: 19 January, [Protest on the Corner of 186th and Pioneer Blvd, Atesia between 1-4pm](https://www.facebook.com/events/1434307883412673/)
 - Chicago: 19 January, [Protest at Patel Brothers 2610 W Devon Ave at 12pm](https://www.facebook.com/events/patel-brothers/chicago-against-hindu-fascism/747574759064424/)
 - New York: 30 January: [Planned Protest against CAA, NPR at Columbia University](https://www.facebook.com/events/608487696583157/) 
 
@@ -96,9 +101,8 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 
 
 ## United Kingdom
-~~- London: 8 January: [Protest from 8 am to 8pm at the Office of the High Comissioner of India](https://www.facebook.com/events/1045664612463465/)~~
 - BRIGHTON: 6-10 January: [Solidarity Gathering at University of Sussex, Library Square from 1-1:30pm, Monday to Friday](https://www.facebook.com/events/1382815025252022)
-
+~~- London: 8 January: [Protest from 8 am to 8pm at the Office of the High Comissioner of India](https://www.facebook.com/events/1045664612463465/)~~
 ~~- OXFORD: 6 JANUARY: [Protest against the violence at JNU at Radcliffe Camera, 12pm UTC](https://www.facebook.com/events/562587924294201/)~~
 ~~- LONDON: 6 JANUARY: [Emergency Protest at SOAS at 10am](https://twitter.com/Annapurnamenon/status/1213861710441959425)~~
 
@@ -109,8 +113,12 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 ## South Africa
 - Cape Town: 9 January: [ Protests at 34 Bree Street, Cape Town](https://www.facebook.com/events/2544093589202419/) 
 
+## Netherlands 
+- Amsterdam: 12 January [Protest at Dam Square at 13:00](https://www.facebook.com/events/2433298980258173/) 
+
 ## Canada
-Vancouver: 26 January: [Solidarity event with Indian univertsities](https://www.facebook.com/events/597250237501920/)
+- Montreal: 13 January [Protest at McGill University between 17;30-19;30](https://www.facebook.com/events/2513990278876184/)
+- Vancouver: 26 January: [Solidarity event with Indian univertsities](https://www.facebook.com/events/597250237501920/)
 ~~- TORONTO: 6 JANUARY: Protest outside the Indian Consulate, 365 Bloor St E, at 12 noon.~~
 
 ## 2019 Protests and Solidarity Initiatives: 
